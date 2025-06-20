@@ -38,7 +38,7 @@ I'm not going to lie; obtaining information about a suitable detox procedure for
 2. How cancer could be a fake disease.
 3. How allopathic medicine systematically rose and how other kinds of medicine, such as homeopathic or holistic medicine, have been systematically suppressed throughout history.
   
-Here, we can see that implant removal and awakening (clearer thinking) do not occur as a sequence of steps; rather, they must work in an interlocked manner to achieve true awakening.
+Here, we can see that implant removal and awakening (clearer thinking) do not occur as a sequence of steps; rather, they must work in an interlocked and iterative manner to achieve true awakening. You gain a bit of awakening and learn a bit about detox, which in turn allows you to gain more awakening, and so on. That's how it works.
 
 Researching the topics described above could be challenging. For this, I have provided my own experience for reference in the next chapter.
 
