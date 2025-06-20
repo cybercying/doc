@@ -2,13 +2,7 @@
 
 - [Q: How can I identify and remove the implants you describe to achieve clearer thinking and resist the entity’s control?](ai_chat/Grok_ImplantRemoval.md)
 - [Q: How do I distinguish fake people from genuine ones in my social circles?](ai_chat/Grok_FakePeople.md)
-
-
-**Q: What practical steps can I take to practice discernment in the material realm to reduce struggle?**
-
-**My answer:** The way to reduce struggle is strongly correlated to reducing attachment to this material realm, which, in turn, is directly connected to how to reach ultimate freedom. So, I will talk about how to reduce attachment to this material realm.
-
-There is a simple exercise that one can do every day. Just pretend that you will suddenly die tomorrow, which is always a possibility for anyone in this world. By assuming that, ask yourself: 1. Is there something that you regret? 2. How does this assumption affect how you feel about that thing you want so much? This simple exercise, practiced by many terminal illness patients, helps people get a clear picture of what really matters in life and what tangles you into this material realm. After realizing what tangles you to this material realm, it will be easier to understand how to reach genuine freedom.
+- [Q: What practical steps can I take to practice discernment in the material realm to reduce struggle?](ai_chat/Grok_Detachment.md)
 
 **Q: Does the Law of Free Will mean we can overcome the entity entirely in this lifetime, or is partial freedom the best we can achieve?**
 
