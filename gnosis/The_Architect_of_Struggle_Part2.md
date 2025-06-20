@@ -44,7 +44,9 @@ Researching the topics described above could be challenging. For this, I have pr
 
 ## Continuous refinement
 
-After removing a significant portion of the implants, you should be able to think more clearly. This also means you have found a detox method to consistently decrease the amount of implants, and this detox must be continuously applied; otherwise, the ingested implants could accumulate again. This does not mean you should keep doing the same detox procedure; rather, you need to update the procedure according to your body's reactions. After the lightweight narcotics wear off, you receive all kinds of signals transmitted from your body, some of which may even be new to you. You must learn to interpret these signals and update the detox procedure in conjunction with the insights gained from your gradual awakening.
+After removing a significant portion of the implants, you should be able to think more clearly. This also means you have found a detox method to consistently decrease the amount of implants, and this detox must be continuously applied; otherwise, the ingested implants could accumulate again.
+
+This does not mean you should keep doing the same detox procedure; rather, you need to update the procedure according to your body's reactions. After the lightweight narcotics wear off, you receive all kinds of signals transmitted from your body, some of which may even be new to you. You must learn to interpret these signals and update the detox procedure in conjunction with the insights gained from your gradual awakening.
 
 ## Cautious
 
