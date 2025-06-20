@@ -30,7 +30,17 @@ The first step to removing an implant is to allow your nervous system to sense i
 
 ## Finding your own detox procedure
 
-After at least some alleviation of the involuntary intake of lightweight narcotics, combined with a certain degree of meditation, you should be able to start finding a detox procedure that is suitable for you. Although I have found my detox procedure, it’s important to understand that this information is not to be circulated for several reasons. Firstly, my method is only suitable for my body because it came from my epiphany; it’s not necessarily suitable for you. Secondly, circulating this kind of information is risky. Often, it will be framed as medical misinformation and attract unwanted attention, and in some extreme cases, it may even be illegal. I'm not going to lie; obtaining information about a suitable detox procedure for you in this control grid is quite challenging. You need to see through the illusion of the modern medical system to some degree, at least. After the pandemic, perhaps it's not that hard as before. Just research some of the following topics, and you just might be able to see through the illusion: 1. How Big Pharma hijacked the medical institutes systematically from the 1950s. 2. How cancer could be a fake disease. 3. How allopathic medicine systematically rose and how other kinds of medicine, such as homeopathic or holistic medicine, have been systematically suppressed throughout history. Here, we can see that implant removal and awakening (clearer thinking) do not occur as a sequence of steps; rather, they must work in an interlocked manner to achieve true awakening.
+After at least some alleviation of the involuntary intake of lightweight narcotics, combined with a certain degree of meditation, you should be able to start finding a detox procedure that is suitable for you. Although I have found my detox procedure, it’s important to understand that this information is not to be circulated for several reasons. Firstly, my method is only suitable for my body because it came from my epiphany; it’s not necessarily suitable for you. Secondly, circulating this kind of information is risky. Often, it will be framed as medical misinformation and attract unwanted attention, and in some extreme cases, it may even be illegal. 
+
+I'm not going to lie; obtaining information about a suitable detox procedure for you in this control grid is quite challenging. If you are determined to embark on the path of awakening, you need to see through the illusion of the modern medical system to at least some degree. After the pandemic, perhaps it's not that hard as before. Just research some of the following topics, and you just might be able to see through the illusion: 
+
+1. How Big Pharma hijacked the medical institutes systematically from the 1950s.
+2. How cancer could be a fake disease.
+3. How allopathic medicine systematically rose and how other kinds of medicine, such as homeopathic or holistic medicine, have been systematically suppressed throughout history.
+  
+Here, we can see that implant removal and awakening (clearer thinking) do not occur as a sequence of steps; rather, they must work in an interlocked manner to achieve true awakening.
+
+Researching the topics described above could be challenging. For this, I have provided my own experience for reference in the next chapter.
 
 ## Continuous refinement
 
