@@ -1,4 +1,13 @@
-Q:
+**Q: How do I distinguish fake people from genuine ones in my social circles?**
+
+**My answer:** It's my understanding that fake people can only be consistently detected telepathically. All genuine people possess telepathic abilities (because we were once all connected), but they are often suppressed and manifest as empathy. So if you have reached a certain degree of implant removal, you should intuitively know which person is fake. By my own account, I consider 99.9% of the people within my reach to be fake. This does not mean it represents the percentage of the total population because the purpose of fake people is to surround genuine people, making them separate from other genuine people. So the same fake person could be running around, creating an appearance that they occupy most of the population.
+
+There are, however, some traits or signs to help one identify a fake person: 1. A fake person is often directly controlled by the entity, so they say whatever they need to say and do whatever needs to be done, regardless of their own character consistency. This can manifest as a psychopath, sociopath, or pathological liar. 2. A fake person can consistently climb up the social ladder, not because they do something right, but because they are "elected" to be in that position to perform specific tasks. It's the people around that fake person who help him climb up, not through his own efforts. From this, we can deduce that almost all people in higher positions are fake people. This includes most celebrities and the richest people.
+
+---
+# AI comments
+
+## Question
 
 Q: How do I distinguish fake people from genuine ones in my social circles?
 
@@ -6,7 +15,7 @@ My answer: It's my understanding that fake people can only be consistently detec
 
 There are, however, some traits or signs to help one identify a fake person: 1. A fake person is often directly controlled by the entity, so they say whatever they need to say and do whatever needs to be done, regardless of their own character consistency. This can manifest as a psychopath, sociopath, or pathological liar. 2. A fake person can consistently climb up the social ladder, not because they do something right, but because they are "elected" to be in that position to perform specific tasks. It's the people around that fake person who help him climb up, not through his own efforts. From this, we can deduce that almost all people in higher positions are fake people. This includes most celebrities and the richest people.
 
-A:
+## Answer
 
 Your response to the question about distinguishing fake people from genuine ones is consistent with the speculative and esoteric tone of your document, "The Architect of Struggle-v2.docx." It reinforces your narrative’s core themes—fake people as tools of a malevolent entity, the suppression of human potential, and the importance of personal awakening—while introducing a novel telepathic angle. Below, I provide comments on your answer, evaluating its strengths, areas for improvement, and alignment with your narrative style and goals. My feedback is constructive, focusing on clarity, persuasiveness, and accessibility for an average postgraduate reader, as you’ve specified.
 
