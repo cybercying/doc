@@ -20,15 +20,15 @@ After reading the first part of "The Architect of Struggle" series, a logical qu
 
 It's important to understand that removing implants to achieve clearer thinking isn't necessarily for everyone. It's an extremely personal choice. Let's break it down:
 
-## Challenges
+### Challenges
 
 Though removing implants could bring you clearer thinking, it could also introduce another layer of struggle. The detox procedure can be potentially painful, time-consuming, and complicated. Additionally, I should note that I don't think the complete removal of implants is possible merely with personal efforts. The reason for that is that 1. implants are too pervasive; they are virtually in every corner of your body. 2. when you remove some implants, new implants are still being ingested into your system. (The only way one can remove all implants is we destroy the underlying mind control infrastructure, which I don't know a way to do that without unifying everyone's effort in the first place.)
 
-## First step: wake up your body
+### First step: wake up your body
 
 The first step to removing an implant is to allow your nervous system to sense its existence. It's necessary to understand our body comes with a natural detox function and is designed to heal itself, but first, it must know there is a problem that needs fixing. Thus, the first layer of the implant's defense mechanism is to prevent your nervous system from detecting its presence, thereby escaping the body's natural detox mechanism. The way to address this is to stop consuming any drugs and reduce the intake of processed foods. The entity disperses some kind of lightweight narcotics into air, food, water, and drugs, just as it distributes the implants. It's my understanding that drugs and processed food contain the highest concentration of such lightweight narcotics. If you consume drugs regularly, it is highly unlikely that you will ever feel the implant. However, if your immediate well-being depends on some drugs, I wouldn't recommend stopping them, as this means you are too dependent on the implants and removing them could be harmful to you.
 
-## Finding your own detox procedure
+### Finding your own detox procedure
 
 After at least some alleviation of the involuntary intake of lightweight narcotics, combined with a certain degree of meditation, you should be able to start finding a detox procedure that is suitable for you. Although I have found my detox procedure, it’s important to understand that this information is not to be circulated for several reasons. Firstly, my method is only suitable for my body because it came from my epiphany; it’s not necessarily suitable for you. Secondly, circulating this kind of information is risky. Often, it will be framed as medical misinformation and attract unwanted attention, and in some extreme cases, it may even be illegal. 
 
@@ -42,13 +42,13 @@ Here, we can see that implant removal and awakening (clearer thinking) do not oc
 
 Researching the topics described above could be challenging. For this, I have provided my own experience for reference in the next chapter.
 
-## Continuous refinement
+### Continuous refinement
 
 After removing a significant portion of the implants, you should be able to think more clearly. This also means you have found a detox method to consistently decrease the amount of implants, and this detox must be continuously applied; otherwise, the ingested implants could accumulate again.
 
 This does not mean you should keep doing the same detox procedure; rather, you need to update the procedure according to your body's reactions. After the lightweight narcotics wear off, you receive all kinds of signals transmitted from your body, some of which may even be new to you. You must learn to interpret these signals and update the detox procedure in conjunction with the insights gained from your gradual awakening.
 
-## Use discernment. Communicate with your body, not with fake people
+### Use discernment. Communicate with your body, not with fake people
 
 Also, discernment during the detox cycle is extremely important. The same thing applies here, too. It's my understanding that the implants are present in every part of everyone's body because none of us have done this before, unless we possess the knowledge. The implants have been accumulating since we were born, so it's safe to assume that they are always in a state of overflow. For example, I believe acne, a skin disease common in young people, is actually the body's natural detox reaction to push excessive implants out of the body. Mainstream medicine will, of course, dismiss this interpretation outright, but that's expected, as this will continue to happen if you decide to embark on the journey.
 
@@ -63,9 +63,34 @@ Do not dismiss these signals easily, as you will need to learn to communicate wi
 
 During the entire process, it is inadvisable to consult any medical professionals or your friends or family for reasons I believe are quite self-explanatory (unless you have decided to yield to the entity's control). That is why discernment is important. Just remember one thing: only you truly know your body, and only you can communicate with your hidden protector; nobody else can. Always apply basic logic and intuition combined with discernment. For example, if doing something causes pain, then don't do it, or at least don't do it continuously. It's your body telling you to stop.
 
-## Cautious
+### Cautious
 
 I should note that seeing through all the lies is not necessarily a fortunate thing for everyone. It could cause your trust in every system that supported you as you grew up to collapse completely. It's like what was described in the Matrix movie franchise, which explains why they often don't free the minds of adults.
 
 There is a saying that if you get the treatment right, you will get worse before getting better. 
 
+## Forbidden Cancer Treatment and Initial Awakening
+
+### Forbidden documentary
+
+Years ago, on the fringe of my initial awakening, I incidentally encountered a documentary video explaining how cancer could be a manufactured disease. For obvious reasons, I will not provide a direct link here. The film begins with the credit, "Donald K. Ranvaud and Buenaonda Films Present." The version I watched is a Chinese video translated from English. The title, translated from Chinese, means "The Forbidden Documentary of Cancer Treatment." I'm guessing the fact that this documentary has not yet been removed might be because it's a translated version that somehow evaded censorship. In the interest of expediency, I will briefly breakdown and summary this documentary as follows: 
+
+- **Science and technology advance on all fronts with a few exceptions:** The author begins by citing that a century ago, we only had rudimentary airplanes just invented, only able to lift a few feet off the ground. Today, we have sophisticated jets capable of reaching incredible heights and three times the speed of sound. This suggests rapid advancement in science and technology. Only a few things that haven't changed in 100 years, and one of them is the apparent incapacity to understand and conquer cancer. The author then explains that this could be caused by the nature that this particular disease only exists in an official narrative, which is potentially fictional.
+
+- **Fixation on official treatment:** Although the exploration of new treatments continues to probe every corner of science, the only official treatments for cancer remain surgery, chemotherapy, and radiotherapy, two of which are actually carcinogenic. All of the official treatments can and often do result in serious side effects.
+
+- **Supression of alternative treatment:** Interest groups such as the Rockefellers systematically sponsor academic and government agencies while secretly implementing a sinister agenda of suppressing or even eradicating medical disciplines that do not align with their profits, which are mainly in pharmaceuticals. The documentary then introduces a series of past inventors of alternative treatment for cancer. These inventors are shown to have established factual and significant results from successful examples of curing cancer patients; yet, they are brutally suppressed later by official medical agencies, some even getting arrested and put in prison.
+
+While I won't fully acknowledge the authenticity of what is presented in this documentary (as I consider that individuals should ponder the truth and come to their own awakening), it did provoke my curiosity to seek out those treatments and the narratives of their original inventors. That quickly led me to realize one inconvenient truth: 
+
+### Inconvenient truth of profit-based medicine
+
+>If a medical institute profits from treating a patient, it will never intend to truly cure the patient. Though it may "appear" to make an effort to treat a patient, the real purpose of this effort is to prolong the treatment process and make the patient more reliant on the institute, thereby forcing higher profits from the patient.
+
+### Inspiration from Dr. Vincent
+
+Around the same time I was exposed to the forbidden cancer treatment documentary, I also came to know an individual whose identity is not important in this context; therefore, I will call him Dr. Vincent for now. It's worth mentioning that this code name has absolutely nothing to do with his real name, as he is a Mandarin-speaking physician who, although possessing a medical license, is heavily influenced by holistic medicine. Also, he is by no means an "international person," because he speaks Chinese with a strong local accent and vocabulary that probably only locals can fully understand. Interestingly, I never met Dr. Vincent in person but only learned his ideas through his "YouTube channel." One could imagine how surprised I am that even a local doctor can choose to put his ideas on an international streaming platform, albeit with his strong accent, which might not be understood properly without subtitles.
+
+However, his idea astonished me. He explained in his video that cancer and many other chronic diseases, such as diabetes, are false ideas created by hospitals and doctors to trick patients into the trap of the medical system. In his narrative, the doctor will first trick the patient into consenting to a series of confusing medical exams and then provide cryptic interpretations to the patients. The end goals are all the same: they will tell you that you have a very serious condition that is hard to treat unless you undergo some kind of complex procedure or take specific drugs, which are all very expensive and have many side effects. He claims that most of the time, the real illness begins when the patient undergoes the procedure or takes the drugs, suggesting the true illness is actually caused by the procedure or the drugs. When such illnesses start, the patients will go to the doctor, and the doctor will restart the same loop all over again, perpetuating the cycle of illness or making it even worse over time, eventually leading to the deaths of certain individuals. He then started to name those deceased individuals he knew who were also local public figures (who may have appeared in local television shows), and show the audience some sort of alleged "corroborating evidence".
+
+While his narrative, upon initial exposure, feels somewhat paranoid, his ideas incidentally align with the documentary described above in many ways. Dr. Vincent also explains that it might not be the doctors' fault because they are taught this way, citing his own experience undergoing Western medical education. This point is also consistent with what was depicted in the documentary. Several epiphanies came right after I started to think about the narratives provided by the documentary and Dr. Vincent. If what they're saying is true, it means there is a conspiracy potentially spanning across the timeframe of multiple generations to use money to corrupt medical institutions and the medical education system. Also, judging by the way they can do this almost without impedance (and thus compromise the entire medical system completely), it suggests they already know how to "do it right" even before the medical system properly developed. The two points (1. extraordinary strength and patience 2. superhuman knowledge) suggest there might be a non-human influence working behind the scenes.
