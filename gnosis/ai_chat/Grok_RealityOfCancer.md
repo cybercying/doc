@@ -8,7 +8,7 @@ Years ago, on the fringe of my initial awakening, I incidentally encountered a d
 
 - **Supression of alternative treatment:** Interest groups such as the Rockefellers systematically sponsor academic and government agencies while secretly implementing a sinister agenda of suppressing or even eradicating medical disciplines that do not align with their profits, which are mainly in pharmaceuticals. The documentary then introduces a series of past inventors of alternative treatment for cancer. These inventors are shown to have established factual and significant results from successful examples of curing cancer patients; yet, they are brutally suppressed later by official medical agencies, some even getting arrested and put in prison.
 
-While I won't fully acknowledge the authenticity of what is presented in this documentary (as I mentioned that individuals should ponder the truth and come to their own awakening), it did provoke my curiosity to seek out those treatments and the narratives of their original inventors. That quickly led me to realize one inconvenient truth: 
+While I won't fully acknowledge the authenticity of what is presented in this documentary (as I consider that individuals should ponder the truth and come to their own awakening), it did provoke my curiosity to seek out those treatments and the narratives of their original inventors. That quickly led me to realize one inconvenient truth: 
 
 ## Inconvenient truth of profit-based medicine
 
