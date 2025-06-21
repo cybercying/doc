@@ -24,11 +24,11 @@ It's important to understand that removing implants to achieve clearer thinking 
 
 Though removing implants could bring you clearer thinking, it could also introduce another layer of struggle. The detox procedure can be potentially painful, time-consuming, and complicated. Additionally, I should note that I don't think the complete removal of implants is possible merely with personal efforts. The reason for that is that 1. implants are too pervasive; they are virtually in every corner of your body. 2. when you remove some implants, new implants are still being ingested into your system. (The only way one can remove all implants is we destroy the underlying mind control infrastructure, which I don't know a way to do that without unifying everyone's effort in the first place.)
 
-### First step: wake up your body
+### First Step: Wake Up Your Body
 
 The first step to removing an implant is to allow your nervous system to sense its existence. It's necessary to understand our body comes with a natural detox function and is designed to heal itself, but first, it must know there is a problem that needs fixing. Thus, the first layer of the implant's defense mechanism is to prevent your nervous system from detecting its presence, thereby escaping the body's natural detox mechanism. The way to address this is to stop consuming any drugs and reduce the intake of processed foods. The entity disperses some kind of lightweight narcotics into air, food, water, and drugs, just as it distributes the implants. It's my understanding that drugs and processed food contain the highest concentration of such lightweight narcotics. If you consume drugs regularly, it is highly unlikely that you will ever feel the implant. However, if your immediate well-being depends on some drugs, I wouldn't recommend stopping them, as this means you are too dependent on the implants and removing them could be harmful to you.
 
-### Finding your own detox procedure
+### Finding Your Own Detox Procedure
 
 After at least some alleviation of the involuntary intake of lightweight narcotics, combined with a certain degree of meditation, you should be able to start finding a detox procedure that is suitable for you. Although I have found my detox procedure, it’s important to understand that this information is not to be circulated for several reasons. Firstly, my method is only suitable for my body because it came from my epiphany; it’s not necessarily suitable for you. Secondly, circulating this kind of information is risky. Often, it will be framed as medical misinformation and attract unwanted attention, and in some extreme cases, it may even be illegal. 
 
@@ -42,13 +42,13 @@ Here, we can see that implant removal and awakening (clearer thinking) do not oc
 
 Researching the topics described above could be challenging. For this, I have provided my own experience for reference in the next chapter.
 
-### Continuous refinement
+### Continuous Refinement
 
 After removing a significant portion of the implants, you should be able to think more clearly. This also means you have found a detox method to consistently decrease the amount of implants, and this detox must be continuously applied; otherwise, the ingested implants could accumulate again.
 
 This does not mean you should keep doing the same detox procedure; rather, you need to update the procedure according to your body's reactions. After the lightweight narcotics wear off, you receive all kinds of signals transmitted from your body, some of which may even be new to you. You must learn to interpret these signals and update the detox procedure in conjunction with the insights gained from your gradual awakening.
 
-### Develop your own treatment with discernment
+### Develop Your Own Treatment with Discernment
 
 Discernment during the detox cycle is extremely important. It's my understanding that the implants are present in every part of everyone's body because none of us have done this before, unless we possess the knowledge. The implants have been accumulating since we were born, so it's safe to assume that they are always in a state of overflow. For example, I believe acne, a skin disease common in young people, is actually the body's natural detox reaction to push excessive implants out of the body. Mainstream medicine will, of course, dismiss this interpretation outright, but that's expected, as this will continue to happen if you decide to embark on the journey.
 
@@ -82,7 +82,7 @@ There is a saying that if you get the treatment right, you will get worse before
 
 In this chapter, I will begin to tell my personal story of the journey toward awakening, right from the beginning.
 
-### Forbidden documentary
+### Forbidden Documentary
 
 Years ago, on the fringe of my initial awakening, I incidentally encountered a documentary video explaining how cancer could be a manufactured disease. For obvious reasons, I will not provide a direct link here. The film begins with the credit, "Donald K. Ranvaud and Buenaonda Films Present." The version I watched is a Chinese video translated from English. The title, translated from Chinese, means "The Forbidden Documentary of Cancer Treatment." I'm guessing the fact that this documentary has not yet been removed might be because it's a translated version that somehow evaded censorship. In the interest of expediency, I will briefly breakdown and summary this documentary as follows: 
 
@@ -94,7 +94,7 @@ Years ago, on the fringe of my initial awakening, I incidentally encountered a d
 
 While I won't fully acknowledge the authenticity of what is presented in this documentary (as I consider that individuals should ponder the truth and come to their own awakening), it did provoke my curiosity to seek out those treatments and the narratives of their original inventors. That quickly led me to realize one inconvenient truth: 
 
-### Inconvenient truth of profit-based medicine
+### Inconvenient Truth of Profit-based Medicine
 
 >If a medical institute profits from treating a patient, it will never intend to truly cure the patient. Though it may "appear" to make an effort to treat a patient, the real purpose of this effort is to prolong the treatment process and make the patient more reliant on the institute, thereby forcing higher profits from the patient.
 
