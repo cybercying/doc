@@ -14,19 +14,33 @@ The following content details my personal experience with detoxification and awa
 
 By sharing this experience, I aim to illustrate my perspective without encouraging others to replicate my actions. I explicitly disclaim any responsibility for consequences arising from attempts to interpret or apply this information. Proceed with caution and discernment, and seek professional advice for any health-related endeavors.
 
-## Chapter 1: How can one remove the implants and acheive awakening?
+## Chapter 1: Implant Removal
 
-After reading the first part of "The Architect of Struggle" series, a logical question to ask is, **"How can one identify and remove the implants to achieve clearer thinking (awakening) and resist the entity's control?"** Here, I will address this question directly.
+After reading the first part of "The Architect of Struggle" series, a logical question to ask is, 
+> **How can one identify and remove the implants to achieve clearer thinking (awakening) and resist the entity's control?** 
+
+In this chapter, I will address this question directly.
 
 It's important to understand that removing implants to achieve clearer thinking isn't necessarily for everyone. It's an extremely personal choice. Let's break it down:
 
 ### Challenges
 
-Though removing implants could bring you clearer thinking, it could also introduce another layer of struggle. The detox procedure can be potentially painful, time-consuming, and complicated. Additionally, I should note that I don't think the complete removal of implants is possible merely with personal efforts. The reason for that is that 1. implants are too pervasive; they are virtually in every corner of your body. 2. when you remove some implants, new implants are still being ingested into your system. (The only way one can remove all implants is we destroy the underlying mind control infrastructure, which I don't know a way to do that without unifying everyone's effort in the first place.)
+Though removing implants could bring you clearer thinking, it could also introduce another layer of struggle. The detox procedure can be potentially painful, time-consuming, and complicated. Additionally, I should note that I don't think the complete removal of implants is possible merely with personal efforts. The reasons for that are:
+
+1. Implants are too pervasive; they are virtually in every corner of your body. 
+2. When you remove some implants, new implants are still being ingested into your system. 
+
+In fact, the only way one can remove all implants is we destroy the underlying mind control infrastructure, which I don't know a way to do that without unifying everyone's effort in the first place.
 
 ### First Step: Wake Up Your Body
 
-The first step to removing an implant is to allow your nervous system to sense its existence. It's necessary to understand our body comes with a natural detox function and is designed to heal itself, but first, it must know there is a problem that needs fixing. Thus, the first layer of the implant's defense mechanism is to prevent your nervous system from detecting its presence, thereby escaping the body's natural detox mechanism. The way to address this is to stop consuming any drugs and reduce the intake of processed foods. The entity disperses some kind of lightweight narcotics into air, food, water, and drugs, just as it distributes the implants. It's my understanding that drugs and processed food contain the highest concentration of such lightweight narcotics. If you consume drugs regularly, it is highly unlikely that you will ever feel the implant. However, if your immediate well-being depends on some drugs, I wouldn't recommend stopping them, as this means you are too dependent on the implants and removing them could be harmful to you.
+The first step to removing an implant is to allow your nervous system to sense its existence. It's necessary to understand our body comes with a natural detox function and is designed to heal itself, but first, it must know there is a problem that needs fixing. Thus, the first layer of the implant's defense mechanism is to prevent your nervous system from detecting its presence, thereby escaping the body's natural detox mechanism. 
+
+The way to address this is to stop consuming any drugs and reduce the intake of processed foods. The entity disperses some kind of lightweight narcotics into air, food, water, and drugs, just as it distributes the implants, to numb your nervous system, making it ignore the implants. It's my understanding that drugs and processed food contain the highest concentration of such lightweight narcotics. 
+
+In fact, I believe the true function of most pharmaceuticals is to numb the nervous system, thereby suppressing the symptoms and discomfort often caused by the body's self-healing mechanism, which creates the illusion of a cure. However, prolonged suppression of the self-healing mechanism could eventually lead to a catastrophic breakdown of health, and the patient won’t be aware of it until it’s too late.
+
+If you consume drugs regularly, it is highly unlikely that you will ever feel the implants. However, if your immediate well-being depends on some drugs, I wouldn't recommend stopping them, as this means you are too dependent on the implants and removing them could be harmful to you.
 
 ### Finding Your Own Detox Procedure
 
@@ -70,7 +84,7 @@ If you treat a part of the body correctly, it will heal. When this happens, anot
 
 Most, if not all, of the time, the instrument or substance required to perform the treatment will be very inexpensive and readily available. You should look for something more affordable, accessible, and simple over something more expensive, rare, or complex. If something is more expensive or complex, it's more likely to be artificially tampered with (hijacked). Some instrument, substance, or knowledge that you seek might not be available to you right away, or you may not know exactly what it is, only a vague idea. You don't have to rush it, but you do need to remember that you require these items. Keep those requirements in your mind and look for them in subtle corners of your life. Most of the time, the solution will simply pop up right in front of you.
 
-During the entire process, it is inadvisable to consult any medical professionals or your friends or family for reasons I believe are quite self-explanatory (unless you have decided to yield to the entity's control). That is why discernment is important. Just remember one thing: only you truly know your body, and only you can communicate with your hidden protector; nobody else can. Always apply basic logic and intuition combined with discernment. For example, if doing something causes pain, then don't do it, or at least don't do it continuously. It's your body telling you to stop.
+During the entire process, it is inadvisable to consult any medical professionals or your friends or family for reasons I believe are quite self-explanatory by now (unless you have decided to yield to the entity's control). That is why discernment is important. Just remember one thing: only you truly know your body, and only you can communicate with your hidden protector; nobody else can. Always apply basic logic and intuition combined with discernment. For example, if doing something causes pain, then don't do it, or at least don't do it continuously. It's your body telling you to stop.
 
 ### Cautions
 
