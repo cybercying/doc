@@ -60,7 +60,7 @@ Researching the topics described above could be challenging. For this, I have pr
 
 After removing a significant portion of the implants, you should be able to think more clearly. This also means you have found a detox method to consistently decrease the amount of implants, and this detox must be continuously applied; otherwise, the ingested implants could accumulate again.
 
-This does not mean you should keep doing the same detox procedure. The "detox method" refers to an effective system that you create to gain epiphanies about designing your own treatment, experiment on your body, and then gather feedback to update or create other treatments. It's not a single static procedure. You need use the detox method to continuously refine the procedures according to your body's reactions.
+This does not mean you should keep doing the same detox procedure. The "detox method" refers to an effective system that you create to gain epiphanies about designing your own treatment, experiment on your body, and then gather feedback to update or create other treatments. It's a dynamically evolving system specifically adapted for you, rather than a single or static procedure. You need use the detox method to continuously refine the procedures according to your body's reactions.
 
 After the lightweight narcotics wear off, you receive all kinds of signals transmitted from your body, some of which may even be new to you. You must learn to interpret these signals and update the detox procedure in conjunction with the insights gained from your gradual awakening.
 
