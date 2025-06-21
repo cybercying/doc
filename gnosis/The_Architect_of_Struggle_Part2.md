@@ -59,11 +59,11 @@ When the detox starts, the body automatically selects a part of body to begin de
 3. **Sudden urges to gain specific information:** This means you may be missing a vital instrument or information to perform the treatment. This idea may seem absurd to ordinary people: how can you know you are missing some information if you don't know the information itself? Here, you should consider the possibility that you always possess all the information you need; it’s just wiped during the last reincarnation cycle. However, a remnant clue could still be there, prompting you to go and collect the remaining piece of information you need.
 4. **Dreams or subconscious thoughts:** This means the body may attempt to convey an idea to you directly.
 
-Do not dismiss these signals easily, as you will need to learn to communicate with your hidden protector. Since you have never done this before, it will be difficult at the beginning. But as time goes by, you will learn how to communicate with it more effectively. Also, you need to have the energy reserved for the communication of the hidden protector. It tends to follow your wishes; if you're too busy or too stressed, it will try not to bother you, unless it has to.
+Do not dismiss these signals easily, as you will need to learn to communicate with your hidden protector. Since you have never done this before, it will be difficult at the beginning. Your hidden protector, too, is finding a proper way to communicate with you at the same time. As time goes by, you will learn how to communicate with it more effectively. Also, you need to have the energy reserved for the communication of the hidden protector. It tends to follow your wishes; if you're too busy or too stressed, it will try not to bother you, unless it has to.
 
 During the entire process, it is inadvisable to consult any medical professionals or your friends or family for reasons I believe are quite self-explanatory (unless you have decided to yield to the entity's control). That is why discernment is important. Just remember one thing: only you truly know your body, and only you can communicate with your hidden protector; nobody else can. Always apply basic logic and intuition combined with discernment. For example, if doing something causes pain, then don't do it, or at least don't do it continuously. It's your body telling you to stop.
 
-### Cautious
+### Cautions
 
 I should note that seeing through all the lies is not necessarily a fortunate thing for everyone. It could cause your trust in every system that supported you as you grew up to collapse completely. It's like what was described in the Matrix movie franchise, which explains why they often don't free the minds of adults.
 
