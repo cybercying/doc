@@ -2,9 +2,9 @@
 
 ## Disclaimer for Reading This Material
 
-The following content details my personal experience with detoxification and awakening, as part of my journey to resist the influence of the malevolent entity described in this work. It is critical to understand the following:
+The following content details my personal experience with detoxification and awakening, as part of my journey to resist the influence of an invisible malevolent alien entity described in my related work. It is critical to understand the following:
 
-1. **Personal Experience Only**: Any guidance provided is specific to my own body and circumstances, derived from my unique epiphany. It is not intended or suitable for others, as individual responses to such practices vary widely and may pose risks if applied without personalization. Most of this information comes from my own epiphanies, which are heavily subjective rather than based on any kind of objective scientific evidence.
+1. **Personal Experience Only**: Any guidance provided is specific to my own body and circumstances. It is not intended or suitable for others, as individual responses to such practices vary widely and may pose risks if applied without personalization. Most information is derived from my own epiphanies, which are heavily subjective rather than based on any kind of objective scientific evidence.
 
 2. **Use of Codenames**: To avoid misinterpretation, I may choose to use metaphorical codenames instead of certain actual substances or methods. In these cases, I will not provide direct instructions or identify specific substances, as this could be misconstrued as medical guidance, which I am not qualified to provide.
 
