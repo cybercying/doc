@@ -96,6 +96,20 @@ I should note that seeing through all the lies is not necessarily a fortunate th
 
 There is a saying that if you get the treatment right, you will get worse before getting better. The same thing applies here, too. If you do it correctly, you will eventually reach a stage where you find that every part of your body can exhibit a certain kind of symptom or discomfort. That's because the implants are literally everywhere in your body. Ordinary people may start panicking and then turn to medical professionals. I'm not against this, as it's ultimately your own choice. It's possible that you are too dependent on the implants to be able to remove them. Just remember, if you turn to medical professionals, it means you yield. There's nothing wrong with yielding; it just means that you are not ready yet. The hidden protector's agenda is to protect you, not to scare you or harm you. If you do it right, the symptoms and discomfort will always be under a safe limit that you can handle unless you ignore the signals and continue to stress your body beyond its tolerance.
 
+### Purpose of the Implants and Relationship to Fake People
+
+Before delving deeper into my personal awakening journey, I feel it's necessary to elaborate a little on the purpose of the implants and their relationship to my worldview, including the existence of fake people. This should provide the audience with a more comprehensive understanding of how these pieces fit together to create the dystopian reality (constant struggle) that we actually perceive.
+
+It's important to understand that the entity does not merely have a "constant struggle" agenda for this material realm; it has a specific script written on how every piece of the world should act. The sheer amount of work to write every script for every piece of the world is done by the entity's subordinate operatives, which can be seen as AI equipped with advanced technology. In the context of Gnosticism, the operatives are referred to as the "Archons." The ability of their technology can include the following characteristics:
+
+1. **Human behavior prediction:** Their technology allows them to conduct accurate educated guesses of the thoughts inside every person, thereby allowing them to predict what one might do.
+
+2. **Group dynamic prediction and manipulation:** Not only can they predict individuals' behaviors, but they can also predict a group of people and their internal dynamics accurately. They can then manipulate these individuals into specific scenarios by surrounding them with information crafted by the operatives.
+
+3. **Disinformation and information overload:** A pivotal ability that one must understand is that the operatives' most powerful strength is probably their capacity to generate and process information at a level beyond human comprehension. In fact, this forms the basis of all their other abilities. Their ability to predict human behavior can also be attributed to this extraordinary computing power because they can observe every movement a person makes and tailor the information specifically for that person to receive at any moment. The widespread infiltration (hijack) into every aspect of the world, including medicine, science, politics, democracy, and the legal system, etc. (as described in part one of the essay series), can be seen as the operatives' ability to generate disinformation and manipulate group dynamics in all those areas of the world. Additionally, there is a phenomenon we all perceive that could not be explained otherwise without the existence of such an ability: every channel of every Internet platform, such as dating, recruiting, forums, commodity exchanges, etc., is flooded with fake posts that are often indistinguishable from genuine ones, making it difficult for modern people to accomplish any task online.
+
+
+
 ## Chapter 2: Forbidden Cancer Treatment and Initial Awakening
 
 In this chapter, I will begin to tell my personal story of the journey toward awakening, right from the beginning.
