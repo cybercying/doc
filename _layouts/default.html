@@ -1,0 +1,10 @@
+<script type="module">
+    // Find all code blocks with the language-mermaid class and add the mermaid class
+    Array.from(document.querySelectorAll('pre > code.language-mermaid')).forEach((codeBlock) => {
+      codeBlock.parentElement.outerHTML = `<pre class="mermaid">${codeBlock.textContent}</pre>`;
+    });
+  
+    import mermaid from '[https://cdn.jsdelivr.net/npm/mermaid@10/dist/mermaid.esm.min.mjs](https://cdn.jsdelivr.net/npm/mermaid@10/dist/mermaid.esm.min.mjs)';
+    mermaid.initialize({ startOnLoad: true });
+</script>
+  
