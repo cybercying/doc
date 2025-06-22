@@ -9,11 +9,11 @@
 /* Make Mermaid flowchart background transparent */
 /* Target the SVG directly, as Mermaid renders into an SVG */
 .mermaid svg {
-    background-color: transparent !important; /* Use !important to override theme styles */
+    background-color: #151515 !important; /* Use !important to override theme styles */
 }
 
 /* For older Mermaid versions or if the above doesn't work,
    you might need to target the foreignObject or rect within the SVG */
 .mermaid rect {
-    fill: transparent !important;
+    fill: #151515 !important;
 }
