@@ -8,5 +8,5 @@ header:
       url: "gnosis/The_Architect_of_Struggle.html"
     - label: "Part 2"
       url: "gnosis/The_Architect_of_Struggle_Part2.html"
-  overlay_image: /assets/images/wiseman_modern_city.jpg
+  overlay_image: /assets/images/oldman_with_books.jpg
 ---
