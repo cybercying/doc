@@ -5,8 +5,8 @@ layout: splash
 header:
   actions:
     - label: "Part 1"
-      url: "https://cybercying.github.io/doc/gnosis/The_Architect_of_Struggle.html"
+      url: "gnosis/The_Architect_of_Struggle.html"
     - label: "Part 2"
-      url: "https://cybercying.github.io/doc/gnosis/The_Architect_of_Struggle_Part2.html"
+      url: "gnosis/The_Architect_of_Struggle_Part2.html"
   overlay_image: /assets/images/wiseman_modern_city.jpg
 ---
