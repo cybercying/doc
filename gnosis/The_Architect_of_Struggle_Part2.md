@@ -1,5 +1,6 @@
 ---
 layout: page
+toc: true
 ---
 # The Architect of Struggle Part 2: Delving Into the Journey of Awakening
 
