@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: page
 ---
 ## Resources
 - [Hacker theme GitHub(v0.2.0)](https://github.com/pages-themes/hacker/tree/v0.2.0)

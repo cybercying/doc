@@ -1,14 +1,12 @@
 ---
-layout: single
+title: "Architect of Struggle Essay Series"
+excerpt: A Gnostic Re-Interpretation of Reality’s Fabric
+layout: splash
+header:
+  actions:
+    - label: "Part 1"
+      url: "https://cybercying.github.io/doc/gnosis/The_Architect_of_Struggle.html"
+    - label: "Part 2"
+      url: "https://cybercying.github.io/doc/gnosis/The_Architect_of_Struggle_Part2.html"
+  overlay_image: /assets/images/wiseman_modern_city.jpg
 ---
-# Welcome to Gnosis Center
-
-## Main Reading
-- [The Architect of Struggle: A Gnostic Re-Interpretation of Reality’s Fabric](gnosis/The_Architect_of_Struggle.md)
-- [The Architect of Struggle Part 2: Delving Into the Journey of Awakening](gnosis/The_Architect_of_Struggle_Part2.md)
-
-## Preparing (might be draft)
-- [QuestionAnswer Prepare](gnosis/QuestionAnswer_Prepare.md)
-
-## Others
-- [Developer's Note](DeveloperNote.md)

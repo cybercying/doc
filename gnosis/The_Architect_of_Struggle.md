@@ -1,5 +1,9 @@
 ---
 layout: page
+toc: true
+toc_sticky: true
+sidebar:
+  nav: "docs"
 ---
 # The Architect of Struggle: A Gnostic Re-Interpretation of Reality's Fabric
 
