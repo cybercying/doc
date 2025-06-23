@@ -1,3 +1,7 @@
+main:
+  - title: "cybercying@github"
+    url: https://cybercying.github.io/
+
 docs:
   - title: Architect of Struggle
     children:
