@@ -1,3 +1,6 @@
+---
+layout: page
+---
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
 |June 22, 2025, 1:39 AM CDT|Update of section "Purpose of the Implants and Relationship to Fake People"|[(Link)](Grok_PurposeOfImplant.md#questions-june-22-2025-139-am-cdt)|[(Link)](Grok_PurposeOfImplant.md#answer-june-22-2025-146-am-cdt)|

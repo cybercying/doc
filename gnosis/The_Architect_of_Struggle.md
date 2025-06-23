@@ -1,3 +1,6 @@
+---
+layout: page
+---
 # The Architect of Struggle: A Gnostic Re-Interpretation of Reality's Fabric
 
 ## Chapter 1: The Pervasive Nature of Struggle: An Initial Disillusionment

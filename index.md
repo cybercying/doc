@@ -1,3 +1,6 @@
+---
+layout: home
+---
 # Welcome to Gnosis Center
 
 ## Main Reading
@@ -6,3 +9,6 @@
 
 ## Preparing (might be draft)
 - [QuestionAnswer Prepare](gnosis/QuestionAnswer_Prepare.md)
+
+## Others
+- [Developer's Note](DeveloperNote.md)

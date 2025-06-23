@@ -1,3 +1,6 @@
+---
+layout: page
+---
 # AI comments
 
 ## Question (June 21, 2025, 12:48 PM CST)

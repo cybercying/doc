@@ -1,3 +1,6 @@
+---
+layout: page
+---
 # The Architect of Struggle Part 2: Delving Into the Journey of Awakening
 
 ## Disclaimer for Reading This Material

@@ -1,3 +1,6 @@
+---
+layout: page
+---
 # AI comments
 
 ## Questions, June 22, 2025, 1:39 AM CDT
