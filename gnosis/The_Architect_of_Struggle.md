@@ -82,11 +82,16 @@ To further prove my narrative, perhaps it's best not to cite science. If such a 
 ### Chinese Communists' Perverted Discipline
 As we discussed earlier, in this system, there is universal captivity over every human being, and everyone is coerced into something that requires constant struggle.
 
-There is a concept that is perhaps better understood in Chinese: "共產黨的黃金藍." It means that the Chinese communists have designed a system that employs the manipulation of public sentiment, bribing with money, or honey-trapping to systematically manipulate important people in the Western world into obedience.
+There is a concept that is perhaps better understood in Chinese: "共產黨的黃金藍." Its literal translation means "the Chinese Communist Party's disciplines of yellow, gold, and blue." The colors in this particular context have their specific meanings. For example, in Chinese, yellow often relates to sexual matters. 
+
+What it really means is that the Chinese communists have designed a system that employs the manipulation of public sentiment, bribing with money, or honey-trapping to systematically manipulate important people in the Western world into obedience.
 
 As I described earlier, people in higher places are often heavily conditioned by established behavioral standards and subject to fear of public and professional ruin; they are inherently easier to predict and control than ordinary people. That is, if you know how. "共產黨的黃金藍" acts as some kind of perverted academic discipline that teaches how to coerce people in higher places to do whatever they want in a systematic manner. These disciplines were not invented by Chinese communists; they have existed since the beginning of human society. Chinese communists have simply made it a systematic approach that everyone can be trained to use to coerce others.
 
-It is commonly understood that if A coerces B into something, then A must have either been coerced by another entity C or that this coercion benefits A in some way. Consequently, if everyone is coerced, it is logical to assume that none of the human beings are the coercers, and that the coercer could be alien in nature. 
+### Deduction Toward a Non-Human Existence
+It is commonly understood that if A coerces B into something, then A must have either been coerced by another entity C or that this coercion benefits A in some way. 
+
+Consequently, if everyone in this world, regardless of their social status, is coerced, it is logical to assume that none of the humans are the coercers and that the coercer could be alien in nature.
 
 ## Chapter 5: Common Questions or Challenges
 
