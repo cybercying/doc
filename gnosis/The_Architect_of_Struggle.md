@@ -98,17 +98,19 @@ Because of this level of difference in ability, its mind becomes twisted. From a
 
 The implementation of the "balancing strategies" described above, while difficult to prove directly, can be shown through some world happiness index studies, which indicate that although science and technology continue to advance over the years, happiness does not necessarily increase over time. One could even argue it's consistently declining, suggesting the influence of an unseen power working behind the scenes to make this happen.
 
-### Misc. Questions
+### Questions About Agency and Hope
 
 **Q: If knowledge of this truth (like Gnosticism) was suppressed, how did it arise in the first place, and how does it persist through history if the mind-control is so effective?**
 
 **My answer:** I suspect that when the underlying benevolent natural order detected this hijacked world, it attempted to reclaim it (that is, hijack the hijacker). The way to do this is to send Jesus into this material realm to deliver some true knowledge about this realm. The mind-control is indeed very effective so the knowledge is buried over thousands of years before it's rediscovered in Nag Hammadi. I don't think the entity has ever stopped to suppress this knowledge ever since.
 
-### Path to Liberation
 **Q: If everyone is coerced and enslaved by this system, is there any possibility of genuine freedom, resistance, or escape for humanity?** Is the future inevitably one of perpetual struggle, or does your narrative allow for any form of liberation?
 
-**My answer:** In order to reach genuine freedom, there are two aspects to discuss:
+**My answer:** Allow me to answer this question with a separate chapter as follows.
 
+## Chapter 6: Path to Liberation
+
+In order to escape this prison of perpetual struggle and reach genuine freedom, there are two aspects to discuss:
 
 #### When You Are Still Alive
 When you are still alive in this material realm, you need to identify the source of your struggle and try to detach from it using discernment. There are many things in the world that one can opt out of. Although social norms often require one to achieve success, that's not necessarily the way to reach genuine freedom. Often, it's the opposite of achieving genuine freedom. 
