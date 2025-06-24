@@ -158,6 +158,8 @@ The phenomenon of frequent occurrences of war throughout human history is, beyon
 
 There is no right answer to this question. In the real world, sometimes if you don't kill your enemy, you or your loved ones will be killed by the enemy. The issue here is not a yes or no answer but the question of whether you truly believe the love and loyalty to your country and people are genuine when they ultimately lead you to kill another human being who has the very same love and loyalty.
 
+Here, there is a direct and obvious contradiction. Love and loyalty are good traits a person should have. Killing is obviously bad. I mean, you wouldn't want someone else to kill you, right? These are all very intuitively obvious issues. But how can the good traits lead you to kill someone who has exactly the same good traits? Isn't that very contradictory? Doesn't that obviously mean there is a profound malevolent force working behind the scenes? If these test questions don't lead you to think about all the following questions and start to doubt the reality, then you're in the "game" too deep. You are not ready for the truth.
+
 ## Chapter 2: Forbidden Cancer Treatment and Initial Awakening
 
 In this chapter, I will begin to tell my personal story of the journey toward awakening, right from the beginning.
