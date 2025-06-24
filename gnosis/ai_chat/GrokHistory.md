@@ -10,7 +10,12 @@ toc: false
 |June 20, 2025, 08:21 PM CST|Initially created part 2, consolidating discussions before<br>*Attachment: [The Architect of Struggle Part 2: Delving Into the Journey of Awakening@github#522269e](https://github.com/cybercying/doc/blob/522269e/gnosis/The_Architect_of_Struggle_Part2.md)*|[(Link)](Grok_Part2.md#question-june-20-2025-0821-pm-cst)|[(Link1)](Grok_Part2.md#answer-1-june-20-2025-0821-pm-cst)[(Link2)](Grok_Part2.md#answer-2-june-20-2025-0821-pm-cst)
 | |Draft to answers to questions|[(Link)](Grok_QuestionListAndDraft.md#question-draft-to-generated-questions)|[(Link)](Grok_QuestionListAndDraft.md#answer--draft-to-generated-questions)|
 | |Initial review of part one. Request for question list.|[(Link)](Grok_QuestionList.md#question-initial-review-of-part-one)|[(Link)](Grok_QuestionList.md#answer-initial-review-of-part-one)|
+| |Propose to rewrite in a proper format| | |
+| |Determine document type|[(Link)](Grok_DocumentType.md#question-document-type)|[(Link)](Grok_DocumentType.md#answer-document-type)|
 | |Initial guess of backgrounds|[(Link)](Grok_GuessBackground.md#question-initial-guess-of-backgrounds)|[(Link)](Grok_GuessBackground.md#answer-initial-guess-of-backgrounds)|
+| |Secondary propose of disseration rewrite with adjustment| | |
+| |Initial propose of disseration rewrite | | |
+| |Start of conversation| | |
 
 ## Test Mermaid Flowchart
 ```mermaid
