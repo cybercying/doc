@@ -1,8 +1,10 @@
 ---
 toc: false
 ---
+## Development Thread
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
+|June 24, 2025, 02:07 PM CST|Polishing part one|[(Link)](Grok_Polishing.md#question-june-24-2025-0207-pm-cst)|[(Link)](Grok_Polishing.md#answer-june-24-2025-0207-pm-cst)|
 |June 22, 2025, 1:39 AM CDT|Update of section "Purpose of the Implants and Relationship to Fake People"|[(Link)](Grok_PurposeOfImplant.md#questions-june-22-2025-139-am-cdt)|[(Link)](Grok_PurposeOfImplant.md#answer-june-22-2025-146-am-cdt)|
 |June 21, 2025, 12:48 PM CST|Guess my professional and educational backgrounds (update)|[(Link)](Grok_GuessBackground.md#question-june-21-2025-1248-pm-cst)|[(Link)](Grok_GuessBackground.md#answer-june-21-2025-1248-pm-cst)|
 |June 21, 2025, 11:40 AM CST|Update on Chapter 1: Implant Removal|[(Link)](Grok_ImplantRemoval.md#question-june-21-2025-1140-am-cst)|[(Link)](Grok_ImplantRemoval.md#answer-june-21-2025-1140-am-cst)|
@@ -17,12 +19,3 @@ toc: false
 | |Initial propose of disseration rewrite | | |
 | |Start of conversation| | |
 
-## Test Mermaid Flowchart
-```mermaid
-graph TD
-    A[Client] --> B[Load Balancer]
-    B --> C[Server01]
-    B --> D[Server02]
-```
-
-This is a paragraph below flowchart.
