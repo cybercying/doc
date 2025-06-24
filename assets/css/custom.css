@@ -9,11 +9,11 @@
 /* Make Mermaid flowchart background transparent */
 /* Target the SVG directly, as Mermaid renders into an SVG */
 .mermaid svg {
-    background-color: #151515 !important; /* Use !important to override theme styles */
+    background-color: transparent !important; /* Use !important to override theme styles */
 }
 
 pre.mermaid {
-    background-color: #151515 !important; /* Use !important to override theme styles */
+    background-color: transparent !important; /* Use !important to override theme styles */
     padding: 0 !important; /* Remove any padding the theme might add to pre blocks */
     border: none !important; /* Remove any borders */
 }
@@ -21,5 +21,19 @@ pre.mermaid {
 /* For older Mermaid versions or if the above doesn't work,
    you might need to target the foreignObject or rect within the SVG */
 .mermaid rect {
-    fill: #151515 !important;
+    fill: transparent !important;
+}
+
+.mermaid .node rect,
+.mermaid .node polygon,
+.mermaid .node circle,
+.mermaid .node path { /* Include path for more complex shapes if needed */
+    stroke-width: 3px !important; /* Adjust this value for desired thickness */
+    /* Optional: You can also change the border color here if you want */
+    /* stroke: #ff0000 !important; */
+}
+
+/* Optional: Adjust font size for better readability within the theme */
+.mermaid .nodeLabel {
+    font-size: 20px !important;
 }
