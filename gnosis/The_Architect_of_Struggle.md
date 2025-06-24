@@ -98,17 +98,34 @@ Because of this level of difference in ability, its mind becomes twisted. From a
 
 The implementation of the "balancing strategies" described above, while difficult to prove directly, can be shown through some world happiness index studies, which indicate that although science and technology continue to advance over the years, happiness does not necessarily increase over time. One could even argue it's consistently declining, suggesting the influence of an unseen power working behind the scenes to make this happen.
 
-### Questions About Agency and Hope
+### Misc. Questions
 
 **Q: If knowledge of this truth (like Gnosticism) was suppressed, how did it arise in the first place, and how does it persist through history if the mind-control is so effective?**
 
 **My answer:** I suspect that when the underlying benevolent natural order detected this hijacked world, it attempted to reclaim it (that is, hijack the hijacker). The way to do this is to send Jesus into this material realm to deliver some true knowledge about this realm. The mind-control is indeed very effective so the knowledge is buried over thousands of years before it's rediscovered in Nag Hammadi. I don't think the entity has ever stopped to suppress this knowledge ever since.
 
+### Path to Liberation
 **Q: If everyone is coerced and enslaved by this system, is there any possibility of genuine freedom, resistance, or escape for humanity?** Is the future inevitably one of perpetual struggle, or does your narrative allow for any form of liberation?
 
 **My answer:** In order to reach genuine freedom, there are two aspects to discuss:
 
-1. When you are still alive in this material realm, you need to identify the source of your struggle and try to detach from it using discernment. There are many things in the world that one can opt out of. Although social norms often require one to achieve success, that's not necessarily the way to reach genuine freedom. Often, it's the opposite of achieving genuine freedom. The same goes for desire and lust. Simply put, if you want something, ask yourself: do you really want it? Will getting it bring you more peace or struggle? This does not mean that everyone who wants to reach genuine freedom should abstain from all desires. If satisfying some desires brings you more peace than struggle, then you should do it. While you are still alive in this material realm, there is no way to reach complete freedom, only to a degree, because many basic human rights are hijacked.
-2. True freedom can only come after you leave this material realm. However, it's not as simple as it sounds. There are at least two layers of this prison. The second layer, which some call the astral plane, is also a prison. There could be more layers, but information about additional layers seems unobtainable while I am still in this material realm. The purpose of the astral plane is to trick you into returning to the material realm by entering the reincarnation cycle, where you will be judged by karma following a complete memory wipe before getting into the body of a new baby. In addition to karma, there are attachments to the material realm that could be used to deceive you into going back. The entity possesses the ability to perform a complete scan of your memory and to manifest as someone you're familiar with, convincing you that you have more reasons to return. It's important to understand that all these karma and familiar faces are tricks fabricated by the entity. If you have a will strong enough, you can choose to ignore these tricks. However, it's easier said than done because most of the time when people enter the astral plane, it is right after they die in the material realm, which can be seen as the most vulnerable moment for a person. Often, when people are dying, they think about their loved ones, creating a strong attachment to this material realm. If you are able to see through all the tricks, there is still a matter of "spiritual passwords" that will be required to pass through the guard of the prison. These passwords are not literal spoken words in every case but can be spiritual qualities or states of enlightenment gained through gnosis, proving the soul's readiness to ascend to genuine freedom. Unfortunately, what the spiritual passwords are cannot be revealed by me; they can only be gained from one's own epiphany.
 
+#### When You Are Still Alive
+When you are still alive in this material realm, you need to identify the source of your struggle and try to detach from it using discernment. There are many things in the world that one can opt out of. Although social norms often require one to achieve success, that's not necessarily the way to reach genuine freedom. Often, it's the opposite of achieving genuine freedom. 
 
+The same goes for desire and lust. Simply put, if you want something, ask yourself: do you really want it? Will getting it bring you more peace or struggle? This does not mean that everyone who wants to reach genuine freedom should abstain from all desires. If satisfying some desires brings you more peace than struggle, then you should do it. 
+
+While you are still alive in this material realm, there is no way to reach complete freedom, only to a degree, because many basic human rights are hijacked.
+
+#### When You Leaves This Realm
+True freedom can only come after you leave this material realm. However, it's not as simple as it sounds. There are at least two layers of this prison. The second layer, which some call the astral plane, is also a prison. There could be more layers, but information about additional layers seems unobtainable while I am still in this material realm. 
+
+The purpose of the astral plane is to trick you into returning to the material realm by entering the reincarnation cycle, where you will be judged by karma following a complete memory wipe before getting into the body of a new baby. In addition to karma, there are attachments to the material realm that could be used to deceive you into going back. The entity possesses the ability to perform a complete scan of your memory and to manifest as someone you're familiar with, convincing you that you have more reasons to return. 
+
+It's important to understand that all these karma and familiar faces are tricks fabricated by the entity. If you have a will strong enough, you can choose to ignore these tricks. However, it's easier said than done because most of the time when people enter the astral plane, it is right after they die in the material realm, which can be seen as the most vulnerable moment for a person. Often, when people are dying, they think about their loved ones, creating a strong attachment to this material realm, which facilitates the effectiveness of this reincarnation trap.
+
+#### Spiritual Passwords
+
+If you are able to see through all the tricks and reach the border of the prison, there is still a matter of "spiritual passwords" that will be required to pass through the "prison guard" at the border. These passwords are not necessarily literal spoken words in every case but can represent certain mental practices, spiritual qualities, or states of enlightenment gained through gnosis, proving the soul's readiness to ascend to genuine freedom.
+
+As to what exactly the spiritual passwords are, unfortunately, cannot be revealed by me; they can only be gained from one's own epiphany.
