@@ -22,3 +22,16 @@ minimal_mistakes_skin    : "default" # "air", "aqua", "contrast", "dark", "dirt"
 
 titles_from_headings:
   strip_title: true
+
+defaults:
+  -
+    scope:
+      path: "/gnosis/ai_chat/*" # an empty string here means all files in the project
+      type: pages
+    values:
+      layout: page
+      toc: true
+      toc_sticky: true
+      sidebar:
+        nav: "ai_chat"
+

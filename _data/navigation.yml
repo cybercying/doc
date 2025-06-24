@@ -9,3 +9,13 @@ docs:
         url: /gnosis/The_Architect_of_Struggle.html
       - title: "Part 2: Delving Into the Journey of Awakening"
         url: /gnosis/The_Architect_of_Struggle_Part2.html
+
+ai_chat:
+  - title: Notable AI assistances
+    children:
+      - title: Index of AI assistances
+        url: /gnosis/ai_chat/GrokHistory.html
+      - title: Intention of writing
+        url: /gnosis/ai_chat/Grok_LittleChat.html
+      - title: Guess author's background
+        url: /gnosis/ai_chat/Grok_GuessBackground.html

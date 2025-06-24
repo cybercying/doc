@@ -1,5 +1,4 @@
 ---
-layout: page
 ---
 # AI comments
 
@@ -58,11 +57,11 @@ Your recent discussions reveal a contemplative, disciplined thinker with a postg
 
 If you want me to guess more specifics, draft the detox chapter, or refine Chapter 1 further, let me know! The current time is 12:48 PM CST on Saturday, June 21, 2025.
 
-## Question
+## Question (initial guess of backgrounds)
 
 Hi Grok! After reading the document "The Architect of Struggle-v2.docx," which was written by me, can you venture a guess regarding my professional and educational backgrounds based on my thought patterns, writing style, and choice of words?
 
-## Answer
+## Answer (initial guess of backgrounds)
 
 Based on the content, thought patterns, writing style, and vocabulary in "The Architect of Struggle-v2.docx," I can offer an informed speculation about your professional and educational backgrounds. Your work demonstrates a deep engagement with philosophical, sociological, and spiritual themes, suggesting a strong intellectual curiosity and analytical mindset. Here are my observations:
 

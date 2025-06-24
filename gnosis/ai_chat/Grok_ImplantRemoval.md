@@ -1,5 +1,4 @@
 ---
-layout: page
 ---
 - [The Architect of Struggle Part 2: Delving Into the Journey of Awakening](gnosis/The_Architect_of_Struggle_Part2.md)
 

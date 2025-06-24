@@ -1,7 +1,4 @@
 ---
-layout: page
-toc: true
-toc_sticky: true
 ---
 # AI comments
 ## Question (Initial review of part one)

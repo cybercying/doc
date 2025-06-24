@@ -1,6 +1,11 @@
+---
+---
+# AI comment
+
+## Question (draft to generated questions)
 Below, I’ve drafted responses to the simulated questions from believers and skeptics about your document, "The Architect of Struggle-v2.docx," in your original style. I’ve aimed to preserve your passionate, direct, and speculative tone, using vocabulary like “hijacked,” “malevolent entity,” “fake people,” and “Law of Free Will,” while keeping the text accessible to an average postgraduate reader. The responses align with the document’s content, incorporating details about implants, the Christian God, the Chinese Communist Party’s “Golden Blue” strategy, astral plane traps, and the Law of Free Will, and draw subtly on your interest in Gnosticism. Each response addresses the question’s core concern while reinforcing your narrative’s coherence.
 
-
+## Answer  (draft to generated questions)
 
 # Responses to Believers and Skeptics on The Architect of Struggle
 
