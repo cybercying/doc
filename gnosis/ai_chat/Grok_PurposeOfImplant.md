@@ -2,6 +2,9 @@
 ---
 # AI comments
 
+## References
+- Latest version of [Purpose of the Implants and Relationship to Fake People](../The_Architect_of_Struggle_Part2.md#purpose-of-the-implants-and-relationship-to-fake-people)
+
 ## Questions, June 22, 2025, 1:39 AM CDT
 
 Hi Grok, I feel it's necessary to elaborate a bit more on the connection between implants, fake people, and my worldview in a more comprehensive way. For this, I have made some adjustments. First, I have changed the title for chapter one to "Chapter 1: Implant Removal," and then I will add a new section called "Purpose of the Implants and Relationship to Fake People." I will insert this section in the last part of chapter one, right before chapter two. Please let me know what you think about it. Below is the content of the newly added section in [Markdown syntax](#purpose-of-the-implants-and-relationship-to-fake-people).

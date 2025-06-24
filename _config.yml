@@ -34,4 +34,15 @@ defaults:
       toc_sticky: true
       sidebar:
         nav: "ai_chat"
+  -
+    scope:
+      path: "/gnosis/The_Architect_of_Struggle*"
+      type: pages
+    values:
+      layout: page
+      toc: true
+      toc_sticky: true
+      sidebar:
+        nav: "docs"
+
 

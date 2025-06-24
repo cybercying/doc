@@ -1,9 +1,4 @@
 ---
-layout: page
-toc: true
-toc_sticky: true
-sidebar:
-  nav: "docs"
 ---
 # The Architect of Struggle Part 2: Delving Into the Journey of Awakening
 
