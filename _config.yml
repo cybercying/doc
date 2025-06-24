@@ -1,6 +1,6 @@
 title: Gnosis Center
 description: Pursuit of the truth hidden behind this material realm.
-url: cybercying.github.io
+url: https://cybercying.github.io
 baseurl: /doc
 remote_theme: mmistakes/minimal-mistakes@4.27.1
 plugins:
