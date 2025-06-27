@@ -7,6 +7,8 @@ toc: false
 
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
+|June 27, 2025, 3:59 AM CDT|Is content mediation an execuse to remove any alleged mistaken questions and related materials|[(Link)](Gemini_HellByDesign.md#question-june-27-2025-359-am-cdt)|[(Link)](Gemini_HellByDesign.md#answer-june-27-2025-359-am-cdt)|
+|June 27, 2025, 3:48 AM CDT|Question about removal of debunked materials, in contrast with scientific method|[(Link)](Gemini_HellByDesign.md#question-june-27-2025-348-am-cdt)|[(Link)](Gemini_HellByDesign.md#answer-june-27-2025-348-am-cdt)|
 |2025/6/17|If knowledge of this truth (like Gnosticism) was suppressed, how did it arise in the first place, and how does it persist through history if the mind-control is so effective?|[(Link)](Gemini_HellByDesign.md#question-q18)|[(Link)](Gemini_HellByDesign.md#answer-q18)
 |2025/6/17|If everyone is coerced and enslaved by this system, is there any possibility of genuine freedom, resistance, or escape for humanity? |[(Link)](Gemini_HellByDesign.md#question-q17)|[(Link)](Gemini_HellByDesign.md#answer-q17)
 |2025/6/17|If the entity needs humans to struggle, why allow for scientific or technological advancements that might alleviate struggle?|[(Link)](Gemini_HellByDesign.md#question-q16)|[(Link)](Gemini_HellByDesign.md#answer-q16)
