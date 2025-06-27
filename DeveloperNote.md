@@ -6,3 +6,5 @@ layout: page
 
 ## AI comments
 - [GrokHistory](gnosis/ai_chat/GrokHistory.md)
+- [GrokHistory2](gnosis/ai_chat/GrokHistory2.md)
+- [GeminiHistory_Conception](gnosis/ai_chat/GeminiHistory_Conception.md)
