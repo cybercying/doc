@@ -1,5 +1,7 @@
 ---
 layout: page
+sidebar:
+  nav: "ai_chat"
 ---
 ## Resources
 - [Hacker theme GitHub(v0.2.0)](https://github.com/pages-themes/hacker/tree/v0.2.0)
