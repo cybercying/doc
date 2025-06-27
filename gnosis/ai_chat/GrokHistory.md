@@ -2,6 +2,9 @@
 toc: false
 ---
 ## Development Thread
+**Note:** 1. Chat messages are presented in _reverse chronological order_. 2. Irrelevant chat messages could be omitted. If they are relevant, the entire question and answer will be recorded without further modification. 3. Some timestamps are missing because they're not present anywhere in the original conversation.
+{: .notice--info}
+
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
 |June 27, 2025, 12:47 PM CST|Added ""Development of The Architect of Struggle Series"|[(Link)](Grok_Polishing.md#question-june-27-2025-1247-pm-cst)|[(Link)](Grok_Polishing.md#answer-june-27-2025-1247-pm-cst)|

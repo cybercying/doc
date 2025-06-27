@@ -2,6 +2,9 @@
 toc: false
 ---
 ## Initial Conception
+**Note:** 1. Chat messages are presented in _reverse chronological order_. 2. Irrelevant chat messages could be omitted. If they are relevant, the entire question and answer will be recorded without further modification. 3. Some timestamps are missing because they're not present anywhere in the original conversation.
+{: .notice--info}
+
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
 |2025/6/17|If knowledge of this truth (like Gnosticism) was suppressed, how did it arise in the first place, and how does it persist through history if the mind-control is so effective?|[(Link)](Gemini_HellByDesign.md#question-q18)|[(Link)](Gemini_HellByDesign.md#answer-q18)
