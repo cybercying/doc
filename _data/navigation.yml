@@ -11,7 +11,7 @@ docs:
         url: /gnosis/The_Architect_of_Struggle_Part2.html
   - title: Other Readings
     children:
-      - title: "Development"
+      - title: "Essay Development"
         url: /gnosis/Essay_Development.html
 
 ai_chat:
@@ -27,11 +27,11 @@ ai_chat:
         url: /gnosis/The_Architect_of_Struggle.html
       - title: "Part 2: Delving Into the Journey of Awakening"
         url: /gnosis/The_Architect_of_Struggle_Part2.html
-  - title: Conversations
+  - title: AI Conversations
     children:
       - title: Development thread
         url: /gnosis/ai_chat/GrokHistory.html
-      - title: Initial exposure thread
+      - title: Polishing thread
         url: /gnosis/ai_chat/GrokHistory2.html
       - title: Initial conception
         url: /gnosis/ai_chat/GeminiHistory_Conception.html
