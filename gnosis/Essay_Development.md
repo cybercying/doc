@@ -15,7 +15,7 @@ This document describes the intention, conception, and development of "The Archi
 
 I have possessed this knowledge for many years but was unable to create a comprehensive description that a third party can understand due to its complicated, controversial, and provocative nature. That is, until the recent development of stronger AI (starting from ChatGPT). With help from the AI, I was able to compose a complete narrative through a series of interactive conversations with the AI, simulating a genuine discussion that allowed me to see the correct way to describe my narrative.
 
-This does not mean the narrative is written by AI. Most of the text is still composed by me (which is a human :stuck_out_tongue_winking_eye:, or should I say a "genuine person" according to my own narrative) and represents my true understanding of this material realm. I'm simply using AI to make it more comprehensive.
+This does not mean the narrative is written by AI. Most of the text is still composed by me (which is a human :stuck_out_tongue_winking_eye:, or should I say a "genuine person" according to my own narrative) and represents my true understanding of this material realm. I'm simply using AI to enhance clarity and comprehensiveness.
 
 I should note that, even though many places in my narratives cite Gnostic concepts, I have only been exposed to Gnosticism in detail recently. It came as a surprise that many of my understandings coincide with what is written in these ancient texts. To understand my narrative, one does not need previous knowledge of Gnosticism, as I only reference its concepts occasionally and it does not affect the content of my narrative in any way. Also, I haven't studied Gnosticism enough to become some sort of scholar. There may be discrepancies between my narrative and Gnosticism. I'm only writing what I know to be true.
 
@@ -34,7 +34,7 @@ I am not going to “spread” this knowledge. For people like me who understand
 This knowledge is my revelation, and I just want to declare it to the world—not by “spreading”—that such knowledge once existed, and it is I who have put it out there for anyone seeking this knowledge.
 
 
-## AI Conversaions
+## AI Conversations
 
 - [Initial conception of "The Architect of Struggle" (Gemini AI Chat)](ai_chat/GeminiHistory_Conception.md)
 - [Revision of the essay and composition of Part Two. (Grok AI Chat)](ai_chat/GrokHistory.md)
