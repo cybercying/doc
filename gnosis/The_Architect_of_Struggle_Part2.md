@@ -72,7 +72,9 @@ After the lightweight narcotics wear off, you receive all kinds of signals trans
 
 Discernment during the detox cycle is extremely important. It's my understanding that the implants are present in every part of everyone's body because none of us have undergone the detox that meant for implant removal before, unless we possess the knowledge. The implants have been accumulating since we were born, so as adults, it's safe to assume that they are always in a state of overflow.
 
-For example, I believe acne, a skin disease common in young people, is actually the body's natural detox reaction to push excessive implants out of the body. This particular skin disease usually doesn't manifest until one reaches puberty; that is because puberty is the time when most people reach the "overflow" state caused by continuous implant accumulation. Mainstream medicine will, of course, dismiss this interpretation outright, but that's expected, as this will continue to happen if you decide to embark on the journey.
+For example, I believe acne, a skin disease common in young people, is actually the body's natural detox reaction to push excessive implants out of the body. This particular skin disease usually doesn't manifest until one reaches puberty; that is because puberty is the time when most people reach the "overflow" state caused by continuous implant accumulation. Others, like myodesopsia (also known as eye floaters), are obviously the manifestation of microscopic ocular implants to me, but we are conditioned to ignore these obvious phenomena since we are young. 
+
+Mainstream medicine will, of course, dismiss this interpretation outright, but that's expected, as this will continue to happen if you decide to embark on the journey.
 
 #### Signals from the Hidden Protector
 
