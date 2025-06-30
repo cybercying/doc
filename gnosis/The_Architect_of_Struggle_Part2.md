@@ -255,6 +255,8 @@ It's as simple as that: you just need to be stronger and healthier. There are ab
 
 In his narrative, he also indicated that any external interventions that try to interfere with the abnormal growth of tissue, which is part of the normal detox process of the body, can only worsen it. If you surgically remove the tumor, it means the established natural barrier will be broken, toxins could escape, and manifest as _metastasis_. Chemotherapy is, by his definition, a direct introduction of additional toxins into the body. Radiotherapy is also seen as a major interference with the body's internal workings. In his view, none of the treatments proposed by mainstream medicine actually fix cancer but only exacerbate it.
 
+He has a motto with which I strongly agree. He says, **"Before treating any illness, treat your head first!"** This means that in order to treat any condition correctly, you need a proper understanding of what the illness truly is with logic and discernment. It suggests that it's more important to see through the contradictions that mainstream narratives often present than to do anything that could potentially be harmful.
+
 Dr. Vincent's proposed method to treat "cancer" or other chronic conditions is based on his theory that:
 
 > Elevated body temperature and active promotion of perspiration can accelerate the body's natural detoxification mechanism.
