@@ -261,6 +261,7 @@ Dr. Vincent's proposed method to treat "cancer" or other chronic conditions is b
  
 He then created a treatment involving the use of something like a far infrared therapy pod. The patient will go into the pod and be wrapped in towels throughout the body that can effectively absorb sweat (to prevent accumulation). Perspiration in the head area is managed by a nurse using additional towels. He claims that by using this method with a specified frequency and duration of treatment, he has successfully cured many individuals alleged to have been diagnosed with _that particular condition_ and many other chronic illnesses by formal Western medicine.
 
+Since I never met Dr. Vincent in person, I didn't have the chance to experience his "far infrared perspiration therapy" or to understand it in more detail. I won't be able to acknowledge the authenticity of his "treatments" in any way. However, it did inspire me to develop my own ad hoc treatment following his "actively promoted perspiration" theory, as I will describe in the next chapter.
 
 ## Chapter 3: Electric Blanket Ad Hoc Treatment
 
