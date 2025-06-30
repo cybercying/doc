@@ -181,7 +181,13 @@ True freedom can only come after you leave this material realm. However, it's no
 
 The purpose of the astral plane is to trick you into returning to the material realm by entering the reincarnation cycle. You will be judged by karma following a complete memory wipe before getting into the body of a new baby. In addition to karma, there are attachments to the material realm that could be used to deceive you into going back. The entity possesses the ability to perform a complete scan of your memory and to manifest as someone you're familiar with, convincing you that you have more reasons to return. 
 
+#### Love, Hate, and Karma
+
 It's important to understand that all these karma and familiar faces are tricks fabricated by the entity. If you have a will strong enough, you can choose to ignore these tricks. However, it's easier said than done because most of the time when people enter the astral plane, it is right after they die in the material realm, which can be seen as the most vulnerable moment for a person. Often, when people are dying, they think about their loved ones, creating a strong attachment to this material realm, which inadvertently facilitates the effectiveness of this reincarnation trap.
+
+It's equally vital to grasp that not only love can facilitate the effectiveness of the reincarnation trap, hate or other forms of psychological trauma can bring you back more easily because these negative emotions can create a stronger bond to this material realm. The intensity of the desire to hurt those who hurt you or to "get even" usually triumphs over your loving feelings for friends or family on a subconscious level. Combined with the karma tactics, one can easily be manipulated back here to take revenge or to "settle the score." 
+
+However, you can change your perspective; if you realize you were once a creator god and now you're returning to be one, none of these petty disputes matter anymore. These are deliberate distractions created by the entity to _keep you engaged_ in this utterly meaningless game of "getting even." I mean, you could get even by hurting the people who hurt you, and then they go on to do the same. When does it end? With the realization of what you truly are, it just doesn't make sense anymore.
 
 #### Spiritual Passwords
 
