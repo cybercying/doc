@@ -382,7 +382,7 @@ After this, the entire event seemed as if it had never happened, except for a fe
 #### Warning From the Entity Received
 I was a perceptive person; I knew what they were trying to do. They wanted me to stop delivering free antidotes, but they couldn't tell me that directly. Instead, they had to warn me by bringing this to media attention, but they couldn't mention my name because that would potentially reveal the truth about the Moonlit Elixir. They couldn't risk it, so they had to elect a fake person they could control to mimic my behavior so the truth wouldn't get out. In the meantime, they showed me what could happen if I continued my voluntary career despite their warning: that the police could take me away for questioning.
 
-I wasn't actually worried about the police or any legal matters because I'm a man of preparation. I have thought this through before I started the voluntary career. I even prepared some kind of MoU for any individual who receives my free gift to sign, stating that they understand this is not a drug, but a free gift, or something like that. But causing this commotion really wasn't my intention, because I truly enjoy peaceful joy and solitude. I don't need this kind of drama in my life. So I stopped this "free gift" carreer soon after.
+I wasn't actually worried about the police or any legal matters because I'm a man of preparation. I have thought this through before I started the voluntary career. I even prepared some kind of MoU for any individual who receives my free gift to sign, stating that they understand this is not a drug, but a free gift, or something like that. But causing this commotion really wasn't my intention, because I truly enjoy peaceful joy and solitude. I don't need this kind of drama in my life. So I stopped this "free gift" career soon after.
 
 #### Providing Free Cures Isn't Possible In Hijacked World
 Interestingly, I knew all this could happen even before the voluntary career. Not exactly like that, but I was expecting some kind of intervention. I think I subconsciously knew the entity, fake people, and how they would play their games. I guess I just want to witness with my own eyes that _giving out free drugs is not possible_ even when the alleged “pandemic” was present.
@@ -408,7 +408,7 @@ The original story about this molar was very complicated, so I will try to simpl
 
 During these two weeks, I suddenly had the urge to chew some very hard cookies, exactly the ones that had caused my molar to hurt in the past. I then tried to chew the hard cookies with that molar, and it didn't hurt anymore. I was very happy to see this, mistakenly thinking it had magically healed, but it hadn't. 
 
-After about a week of using the molar as if it were healed and continuously chewing hard cookies, another serious problem occurred, the molar got fractured, presumable caused by continuously chewing hard cookies. I didn't know such condition even existed, as I needed to look it up to understand what really happened. The factured tooth isn't very obvious at the beginning, however, if left untreated can lead to various complications, including infection, pain, and potential tooth loss. 
+After about a week of using the molar as if it were healed and continuously chewing hard cookies, another serious problem occurred, the molar got fractured, presumably caused by continuously chewing hard cookies. I didn't know such condition even existed, as I needed to look it up to understand what really happened. The fractured tooth isn't very obvious at the beginning, however, if left untreated can lead to various complications, including infection, pain, and potential tooth loss. 
 
 #### Epiphany to Treat Fractured Tooth
 When I was looking up information on the Internet about fractured teeth, I learned that this is a pretty serious problem, especially with my condition. But my subconscious kicked in at that exact moment; I was able to find a rare Japanese YouTube video that perfectly described a way I can do at home to treat my specific condition.
@@ -447,7 +447,7 @@ This particular condition of "artificial fibers buried deep inside the skin" is 
 
 This again proves that science itself is heavily hijacked. No matter what scientific methods one tries to use to prove something, there is always a possibility that official narratives choose not to recognize it. Yet, people still believe that science is somehow credible?
 
-If we are in The Truman Show, such "official narratives" would be the "wall" on the far side where the sky meets the sea. Upon hearing such a selective "official narrative" and still believing science is credible is just like when one sees the "wall" and still believes there is a sea and sky on the far side.
+If we are in _The Truman Show_, such "official narratives" would be the "wall" on the far side where the sky meets the sea. Upon hearing such a selective "official narrative" and still believing science is credible is just like when one sees the "wall" and still believes there is a sea and sky on the far side.
 
 In my view, there is no other explanation except that the judgment of that person is severely compromised, presumably by the very implant the official narrative tries to deny.
 
