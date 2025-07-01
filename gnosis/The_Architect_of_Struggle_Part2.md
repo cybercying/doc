@@ -276,11 +276,13 @@ Since I never met Dr. Vincent in person, I didn't have the chance to experience 
 
 ### Overview
 
-Throughout the years, I have developed countless ad hoc treatments tailored specifically to my body. As an overview, I will briefly introduce the architecture of the entire healing process:  
+Throughout the years, I have developed countless ad hoc treatments tailored specifically to my body. As described in chapter one, these are all part of my ever adjusting _detox method_, which is a system that I create to gain epiphanies about designing my own treatment, experiment on my body, and then gather feedback to update or create other treatments. It's a dynamically evolving system specifically adapted for me, rather than a single or static procedure.
+
+As an overview, I will briefly introduce the architecture of the entire healing process:  
 1. **Wake up the body:** This allows the body to detect the existence of implants.  
 2. **Address critical issues:** Following the wake-up of the body, some high-priority issues will immediately emerge. I need to address these critical issues first. This leads to the conclusion of the existence of implants because that's when I found them in actual substance.  
-3. **Dismantle implant network foundation in the body:** It's important to understand that although the implants are spreading throughout the body, they're controlled by a network with a control center within the body. That's one of the reasons why they are hard to detect because the control center alters the perception of the central nervous system. We need to dismantle, or at least disrupt, its function to make the evil show itself.
-4. **Actual detox:** After the network is disrupted to some extent, the body's natural defense mechanism will kick in. The hidden protector will communicate with you more effectively. The implants will start to malfunction, fragments will begin falling, and the body will be able to expel them. Various treatments will be needed in different parts of the body. This is when communication with the hidden protector becomes very important.
+3. **Dismantle implant network foundation in the body:** It's important to understand that although the implants are spreading throughout the body, they're mediated by a network with a control center within the body. That's one of the reasons why they are hard to detect because the control center alters the perception of the central nervous system. We need to dismantle, or at least disrupt, its function to make the evil show itself.
+4. **Actual detox:** After the network is disrupted to some extent, the body's natural defense mechanism will kick in. The hidden protector will communicate with me more effectively. The implants will start to malfunction, fragments will begin falling, and the body will be able to expel them. Various treatments will be needed in different parts of the body. This is when communication with the hidden protector becomes very important.
 
 Note that these steps do not only happen once. Steps 2, 3, and 4 can occur in an iterative manner because of the "blocker effect." Some implants have to be removed for certain critical issues to reveal themselves. The control center is also not a single standalone system; it’s a hierarchical graph. Sometimes, dismantling certain control nodes is only possible after some other implants are removed. They are interlocked together to form a intricate control network within the body. 
 
@@ -300,6 +302,17 @@ However, I later realized that it was never the case at all. All these mild symp
 
 This is where I must bring up the caveat again: implant removal is not for everyone. It's an extremely personal choice. Actually embarking on the journey can be somewhat like entering a rabbit hole. You never know what challenges will appear next.
 
+### Using Electric Blanket
+
+To simulate the effect of what I saw in Dr. Vincent's video to achieve elevated body temperature, I used a double-sized electric blanket and folded it in half while putting myself inside. This would effectively create a sort of "human sandwich" where the electric blanket is the bread and I am the filling. It's important to understand that using the electric blanket in this folded way could be _dangerous_ (according to its product manual). If I weren't inside the folded blanket, it could cause the heat to build up inside the folded area to exceed a tolerable range. However, this won't happen as long as I am inside because I can feel the temperature. When I leave the blanket, I must turn off the electric blanket immediately to avoid any potential hazards.
+
+When I was inside the electric blanket, I often used the maximum setting and was watchful of the time elapsed. After about 10 minutes, significant perspiration all over my body would occur, including in the head area. I would hold on for 5 or 10 more minutes or until I couldn't anymore. Then, I would turn off the electric blanket and get out with my clothes fully wet with sweat. I then go to bath to scrub carefully throughout my body because I imagined that if detox worked, I could be covered with toxins that was expelled by the perspiration.
+
+For this to work, I would need to prepare at least an additional set of clothes because the one I used on the electric blanket would be completely wet (and presumably covered with expelled toxins from sweat). They also smelled really bad when I took them off. Washing these clothes could require some diligent work because I did it daily, sometimes even multiple times a day. I didn't know how many times a day were appropriate. I just intuitively knew when to do it;  my body would tell me when. That's how I learned a hidden protector might actually exist.
+
+After a month or so of continuing this, some subtle changes occurred. The time elapsed until significant perspiration kept extending. Initially, it was 10 minutes, then 20 minutes, and eventually reached 30 minutes. The smell of the clothes also changed significantly. Because the smell was the only instrument available to me to detect how much toxin was actually expelled, I paid extra attention to it. Simply put, the smell was wearing thin as the time to perspiration extended. This can only lead to one logical conclusion: the detox was working, and my body was adapting.
+
+After only six weeks of this treatment with continued micro-adjustments, my next significant epiphany regarding a new treatment occurred spontaneously, which will be described in the next chapter. The newly discovered treatment would serve the purpose of "dismantling the implant network foundation," as mentioned earlier. But, of course, I did not realize its true purpose until much later, as I wasn't able to see the whole picture back then.
 
 ## Chapter 4: The Universal Antidote
 
