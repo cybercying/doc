@@ -271,7 +271,35 @@ Since I never met Dr. Vincent in person, I didn't have the chance to experience 
 
 ## Chapter 3: Electric Blanket Ad Hoc Treatment
 
-(to be written)
+**Warning:** You are about to be exposed to non-mainstream medical interpretations and information about alternative treatments based on anecdotal elements and unverified third-party claims. If you forget what the [disclaimer](#disclaimer-for-reading-this-material) of this document is, perhaps it's time to review it. It's at the top of this document. In the following content, I will use "I" in places where "you" would seem more appropriate. However, it's a necessary writing style to emphasize that these are all my personal experiences.
+{: .notice--warning}
+
+### Overview
+
+Throughout the years, I have developed countless ad hoc treatments tailored specifically to my body. As an overview, I will briefly introduce the architecture of the entire healing process:  
+1. **Wake up the body:** This allows the body to detect the existence of implants.  
+2. **Address critical issues:** Following the wake-up of the body, some high-priority issues will immediately emerge. I need to address these critical issues first. This leads to the conclusion of the existence of implants because that's when I found them in actual substance.  
+3. **Dismantle implant network foundation in the body:** It's important to understand that although the implants are spreading throughout the body, they're controlled by a network with a control center within the body. That's one of the reasons why they are hard to detect because the control center alters the perception of the central nervous system. We need to dismantle, or at least disrupt, its function to make the evil show itself.
+4. **Actual detox:** After the network is disrupted to some extent, the body's natural defense mechanism will kick in. The hidden protector will communicate with you more effectively. The implants will start to malfunction, fragments will begin falling, and the body will be able to expel them. Various treatments will be needed in different parts of the body. This is when communication with the hidden protector becomes very important.
+
+Note that these steps do not only happen once. Steps 2, 3, and 4 can occur in an iterative manner because of the "blocker effect." Some implants have to be removed for certain critical issues to reveal themselves. The control center is also not a single standalone system; it’s a hierarchical graph. Sometimes, dismantling certain control nodes is only possible after some other implants are removed. They are interlocked together to form a intricate control network within the body. 
+
+Also, as I noted at the beginning of this essay, all these steps are still not a guide for complete implant removal because removing implants entirely is simply not possible. However, by continually updating my detox method, I should be able to prevent a significant control node from forming inside my body.
+
+### Electric Blanket and Pandora's Box
+
+Following Dr. Vincent's theory of accelerated healing, I was able to develop my very first ad hoc treatment. As a quick reference, let's recap what he stated in the theory. He reiterated in his narratives that:
+
+> Elevated body temperature and active promotion of perspiration can accelerate the body's natural detoxification mechanism.
+
+Based on this theory, I was able to adopt the electric blanket, a device typically used to pre-heat a bed, as my first instrument of ad hoc treatment because an electric blanket happened to be available to me. I was able to use this instrument to successfully wake up my body through accelerated detox. That's when I realized the existence of lightweight narcotics that could exist universally in the environment surrounding me because many feelings that I did not notice before kept appearing, and they simply could not have been caused by the electric blanket. These feelings have been there for a long time; I just didn't pay enough attention to notice they were still present.
+
+It's noteworthy that whatever treatment I used to wake up my body could also be seen as opening a Pandora's box. There are so many minor problems in my body since I was very young. Many manifest as an itchy sensation deep under the skin, a little bump here and there, mild pain, a twinge, or a dull ache, etc. These symptoms, while universal among almost everyone, are often not medically treated because they don't interfere with daily life at all. Most of the time, one barely feels them. Even if one goes to the doctor to treat these mild symptoms, they are often regarded as "physiological issues" (or "psychosomatic disorder") and given pharmaceuticals that can only be considered placebos. If one frequently encounters such experiences, they will soon be conditioned to ignore these mild symptoms completely.
+
+However, I later realized that it was never the case at all. All these mild symptoms actually represent something significantly serious and can only signify the beginning of a long and complex manifestation of many other symptoms. By waking up my body, I was able to understand that many old mild symptoms are, in fact, not mild at all. They were just _numbed_. This is why I would describe waking my body as opening a Pandora's box because I couldn't believe there were actually so many things wrong with it. Before things could improve at a much later time, they kept getting worse and worse. It often interfered with my daily life, not to the extent of completely disrupting it, but enough that I couldn't ignore them.
+
+This is where I must bring up the caveat again: implant removal is not for everyone. It's an extremely personal choice. Actually embarking on the journey can be somewhat like entering a rabbit hole. You never know what challenges will appear next.
+
 
 ## Chapter 4: The Universal Antidote
 
