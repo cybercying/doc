@@ -358,24 +358,31 @@ After trying Moonlit Elixir on my burn wound, the result astonished me. I applie
 
 ### Story of a Voluntary Career
 
+#### "Awakened Circles" During Pandemic
 This all started when the COVID pandemic was raging. There were many "awakened circles" emerging everywhere, claiming they saw the "truth" of the pandemic or that it was actually a "plandemic." As a truth seeker since my youth, I was naturally drawn to this kind of narrative, so I joined many group chats of such circles. I then participated the discussion in a group by mentioning that Moonlit Elixir could be a potential solution to this pandemic. I understood this was a controversial topic, but I imagined it was okay since we were in an awakened circle, which tend to accept conspiratorial or esoteric narratives.
 
 I later realized that the so-called "awakened circles" are actually populated with fake people who actively lead the narratives. However, the realization came much later; at that time, I didn't know that fake people could even exist.
 
 Right after I initially brought up the topic, I was herded into another group that specifically discusses Moonlit Elixir, citing that this particular content is not suitable for "general awakened circles" but only for a specific, narrower circle.
 
-I then began promoting the idea in the second group that, since I possess the knowledge to produce Moonlit Elixir and was with a group of believers, I was willing to provide the final products of Moonlit Elixir at no charge. Following this, I was then herded to yet another group specifically for practical treatment using Moonlit Elixir. In the third group, everyone seemed very excited to hear the news that someone was willing to provide Moonlit Elixir at no cost. I then began my voluntary career of providing Moonlit Elixir without financial compensation.
+#### Promotion of a Voluntary Career
+I then began promoting the idea in the second group that, since I possess the knowledge to produce Moonlit Elixir and was with a group of believers, I was willing to provide the final products of Moonlit Elixir at no charge. 
+
+Following this, I was then herded to yet another group specifically for practical treatment using Moonlit Elixir. In the third group, everyone seemed very excited to hear the news that someone was willing to provide Moonlit Elixir at no cost. I then began my voluntary career of providing Moonlit Elixir without financial compensation.
 
 Long story short, that voluntary career soon fell apart in merely two months, not because it wasn't successful, but rather because it was too successful. Back then, I wasn't aware of the existence of implants, fake people, and the entity; there was no way to explain what really happened with the vocabulary that was available to me. However, with those concepts introduced later, I can now explain what actually happened as follows.
 
+#### Fake People Into the Mix
 When the voluntary career started, I soon delivered several free batches of Moonlit Elixir to dozens of people and received very positive feedback. Then, fake people in the group began to emulate my behavior to start their own Moonlit Elixir voluntary career. The group soon grew into a very large community that attracted media attention. However, the media attention created by fake people (or "fake media" for short) was directed at the fake voluntary career undertaker (or "fake undertaker" for short), instead of me. The fake media then launched a fierce attack against the fake undertaker.
 
 Finally, the police, composed of fake people (or "fake police" for short), appeared and allegedly took the fake undertaker in for questioning. The group dispersed, and that was most of it. The entire community seemed to be vaporized in a split second. No one knows what happened after the fake police took the fake undertaker in for questioning. This entire event seems to have never happened, except for a few news clips that I saved in my personal archive for record-keeping.
 
+#### Warning From the Entity Received
 I was a perceptive person; I knew what they were trying to do. They wanted me to stop delivering free antidotes, but they couldn't tell me that directly. Instead, they had to warn me by bringing this to media attention, but they couldn't mention my name because that would potentially reveal the truth about the Moonlit Elixir. They couldn't risk it, so they had to elect a fake person they could control to mimic my behavior so the truth wouldn't get out. In the meantime, they showed me what could happen if I continued my volunteer career despite their warning: that the police could take me away for questioning.
 
 I wasn't actually worried about the police or any legal matters because I'm a man of preparation. I have thought this through before I started the voluntary career. I even prepared some kind of MoU for any individual who receives my free gift to sign, stating that they understand this is not a drug, but a free gift, or something like that. But causing this commotion really wasn't my intention, because I truly enjoy peaceful joy and solitude. I don't need this kind of drama in my life. So I stopped this "free gift" carreer soon after.
 
+#### Providing Free Cures Isn't Possible
 Interestingly, I knew all this could happen even before the voluntary career. Not exactly like that, but I was expecting some kind of intervention. I think I subconsciously knew the entity, fake people, and how they would play their games. I guess I just want to witness with my own eyes that giving out free drugs is not possible even when the alleged “pandemic” was present.
 
 The media, the police, and all those people in the group just proved to me that reality is not really what it seems. There is something truly wrong with this world. This entire event also provided me with ample knowledge about the tactics of the entity and fake people, enabling me to later recognize their existence and predict their behavior more effectively.
@@ -383,7 +390,9 @@ The media, the police, and all those people in the group just proved to me that 
 ### Implant in Tooth
 
 #### Moonlit Elixir to Replace Toothpaste
-After the initial success of the experiment with Moonlit Elixir as a disinfectant, I began various experiments, mainly to test some well-documented protocols that have circulated in related esoteric medicine circles. I then made an important discovery to replace toothpaste with Moonlit Elixir. Obviously, many details are omitted here since using the substance involves specific doses and concentrations, but the omission is intentional. I do not want anyone to copy my treatments directly. As stated in the [disclaimer](#disclaimer-for-reading-this-material), the treatments I developed are uniquely suitable for my body. Readers, if interested, should find their own treatment rather than directly copy mine.
+After the initial success of the experiment with Moonlit Elixir as a disinfectant, I began various experiments, mainly to test some well-documented protocols that have circulated in related esoteric medicine circles. I then made an important discovery to replace toothpaste with Moonlit Elixir.
+
+Obviously, many details are omitted here since using the substance involves specific doses and concentrations, but the omission is intentional. I do not want anyone to copy my treatments directly. As stated in the [disclaimer](#disclaimer-for-reading-this-material), the treatments I developed are uniquely suitable for my body. Readers, if interested, should find their own treatment rather than directly copy mine.
 
 After a month of replacing toothpaste with Moonlit Elixir, my gum inflammation has significantly improved. There are also other benefits that came with the change. Moonlit Elixir seems to excel as an oral deodorant. For example, if I eat food containing garlic, regular toothpaste won't be able to get rid of the garlic smell in my mouth, but Moonlit Elixir can. In the past, when I went to sleep and woke up, a strong odor could accumulate in my mouth after lying in bed for several hours. By switching to Moonlit Elixir, this problem is also gone, suggesting that Moonlit Elixir can eliminate bacteria in the mouth more effectively than toothpaste.
 
