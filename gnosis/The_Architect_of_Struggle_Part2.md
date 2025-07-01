@@ -346,7 +346,7 @@ This particular substance has actually been proven to be medically effective for
 
 It's important to understand that in mainstream narrative, the phrase "the universal antidote" is not a real concept. It's not possible for there to be a true universal antidote. I mean, if there were, we wouldn't need all those hospitals and doctors, at least not as many.
 
-#### Basic Property of "Moonlit Elixir"
+### Basic Property of "Moonlit Elixir"
 
 Moonlit Elixir is a derived chemical substance. It can be chemically synthesized in my home if I have the proper knowledge. The ingredients used to synthesize the final products are relatively common and cheap, but it requires a bit of high school chemical knowledge, which by the time people reach adulthood, they have most certainly forgotten.
 
@@ -356,8 +356,21 @@ But it finally worked; I have successfully produced Moonlit Elixir in my home. I
 
 After trying Moonlit Elixir on my burn wound, the result astonished me. I applied it like a disinfectant without additional protection, such as a bandage, to shield the wound; it showed no signs of infection within two days. By the third day, the wound was almost healed, with only a thin scab that was already waterproof. Compared to my previous self-medication experience, it would have taken about six or seven days for such a wound to heal to this extent. By the fourth day, the wound was completely healed, almost without a trace. To me, the alleged property of being a perfect disinfectant seems genuine. That convinced me to continue developing other treatments.
 
+### Story of a Voluntary Career
 
+When all this started, it was during the full strength of the COVID pandemic. There were many "awakened circles" emerging everywhere, claiming they saw the "truth" of the pandemic or that it was actually a "plandemic." As a truth seeker since my youth, I was naturally drawn to this kind of narrative, so I joined many group chats of these circles. I then joined the discussion by mentioning that Moonlit Elixir could be a potential solution to this pandemic. I understood this was a controversial topic to bring up, but I imagined it was okay since we were in the awakened circles, which tend to accept conspiratorial or esoteric narratives.
 
+I later realized that the so-called "awakened circles" are actually full of fake people who actively lead the narratives in these circles. However, the realization came much later; at that time, I didn't know that fake people could even exist.
+
+Right after I initially brought up the topic, I was herded into a group that specifically discusses Moonlit Elixir, citing that this particular content is not suitable for "general awakened circles" but only for a specific, narrower circle.
+
+I then began promoting the idea in the second group that, since I possess the knowledge to produce Moonlit Elixir and was with a group of believers, I was willing to provide the final products of Moonlit Elixir at no charge. Following this, I was then herded to another group specifically for practical treatment using Moonlit Elixir. In the third group, everyone seemed very excited to hear the news that someone was willing to provide Moonlit Elixir at no cost. I then began my voluntary career of providing Moonlit Elixir without financial compensation.
+
+Long story short, that voluntary career soon fell apart in merely two months, not because it wasn't successful, but rather because it was too successful. Back then, I wasn't aware of the existence of implants, fake people, and the entity; there was no way to explain what really happened with the vocabulary that was available to me. However, with those concepts introduced later, I can now explain what actually happened as follows.
+
+When the voluntary career started, I soon delivered several free batches of Moonlit Elixir to dozens of people and received very positive feedback. Then, fake people in the group began to emulate my behavior to start their own Moonlit Elixir vocabulary career. The group soon grew into a very large community that attracted media attention. However, the media attention created by fake people (or "fake media" for short) was directed at the fake vocabulary career undertaker (or "fake undertaker" for short), instead of me. The fake media launched a fierce attack against the fake undertaker.
+
+Finally, the police, composed of fake people, appeared (or "fake police" for short) and allegedly took the fake undertaker in for questioning. The group dispersed, and that was most of it. The entire community seemed to be vaporized in a split second. No one knows what happened after the fake police took the fake undertaker in for questioning. This entire event seems to have never happened, except for a few news clips that I saved in my personal archive for record-keeping.
 
 
 
