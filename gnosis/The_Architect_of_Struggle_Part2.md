@@ -358,9 +358,9 @@ After trying Moonlit Elixir on my burn wound, the result astonished me. I applie
 
 ### Story of a Voluntary Career
 
-When all this started, it was during the full strength of the COVID pandemic. There were many "awakened circles" emerging everywhere, claiming they saw the "truth" of the pandemic or that it was actually a "plandemic." As a truth seeker since my youth, I was naturally drawn to this kind of narrative, so I joined many group chats of these circles. I then joined the discussion by mentioning that Moonlit Elixir could be a potential solution to this pandemic. I understood this was a controversial topic to bring up, but I imagined it was okay since we were in the awakened circles, which tend to accept conspiratorial or esoteric narratives.
+This all started when the COVID pandemic was raging. There were many "awakened circles" emerging everywhere, claiming they saw the "truth" of the pandemic or that it was actually a "plandemic." As a truth seeker since my youth, I was naturally drawn to this kind of narrative, so I joined many group chats of these circles. I then participated the discussion by mentioning that Moonlit Elixir could be a potential solution to this pandemic. I understood this was a controversial topic to bring up, but I imagined it was okay since we were in an awakened circle, which tend to accept conspiratorial or esoteric narratives.
 
-I later realized that the so-called "awakened circles" are actually full of fake people who actively lead the narratives in these circles. However, the realization came much later; at that time, I didn't know that fake people could even exist.
+I later realized that the so-called "awakened circles" are actually populated with fake people who actively lead the narratives. However, the realization came much later; at that time, I didn't know that fake people could even exist.
 
 Right after I initially brought up the topic, I was herded into a group that specifically discusses Moonlit Elixir, citing that this particular content is not suitable for "general awakened circles" but only for a specific, narrower circle.
 
@@ -372,18 +372,19 @@ When the voluntary career started, I soon delivered several free batches of Moon
 
 Finally, the police, composed of fake people, appeared (or "fake police" for short) and allegedly took the fake undertaker in for questioning. The group dispersed, and that was most of it. The entire community seemed to be vaporized in a split second. No one knows what happened after the fake police took the fake undertaker in for questioning. This entire event seems to have never happened, except for a few news clips that I saved in my personal archive for record-keeping.
 
+I was a perceptive person; I knew what they were trying to do. They wanted me to stop delivering free antidotes, but they couldn't tell me that directly. Instead, they had to warn me by bringing this to media attention, but they couldn't mention my name because that would potentially reveal the truth about the Moonlit Elixir. They couldn't risk it, so they had to elect a fake person they could control to mimic my behavior so the truth wouldn't get out. In the meantime, they showed me what could happen if I continued my volunteer career despite their warning: that the police could take me away for questioning.
+
+I wasn't actually worried about the police or any legal matters because I'm a man of preparation. I have thought this through before I started the voluntary career. I even prepared some kind of MoU for any individual who receives my free gift to sign, stating that they understand this is not a drug, but a free gift, or something like that. But causing this commotion really wasn't my intention, because I truly enjoy peaceful joy and solitude. I don't need this kind of drama in my life. So I stopped this "free gift" carreer soon after.
+
+Interestingly, I knew all this could happen even before the voluntary career. Not exactly like that, but I was expecting some kind of intervention. I think I subconsciously knew the entity, fake people, and how they would play their games. I guess I just want to witness with my own eyes that giving out free drugs is not possible even when the alleged “pandemic” was present.
+
+The media, the police, and all those people in the group just proved to me that reality is not really what it seems. There is something truly wrong with this world. This entire event also provided me with ample knowledge about the tactics of the entity and fake people, enabling me to later recognize their existence and predict their behavior more effectively.
 
 
 (to be written)
 
 ## Chapter 5: Common Questions or Challenges
 Below I will address some common questions or challenges that an average person may have about what I mentioned above. By answering these questions, I hope one can gain a better understanding of my narrative.
-
-**Q: How do I distinguish fake people from genuine ones in my social circles?**
-
-**My answer:** It's my understanding that fake people can only be consistently detected telepathically. All genuine people possess telepathic abilities (because we were once all connected), but they are often suppressed and manifest as empathy. So if you have reached a certain degree of implant removal, you should intuitively know which person is fake. By my own account, I consider 99.9% of the people within my reach to be fake. This does not mean it represents the percentage of the total population because the purpose of fake people is to surround genuine people, making them separate from other genuine people. So the same fake person could be running around, creating an appearance that they occupy most of the population.
-
-There are, however, some traits or signs to help one identify a fake person: 1. A fake person is often directly controlled by the entity, so they say whatever they need to say and do whatever needs to be done, regardless of their own character consistency. This can manifest as a psychopath, sociopath, or pathological liar. 2. A fake person can consistently climb up the social ladder, not because they do something right, but because they are "elected" to be in that position to perform specific tasks. It's the people around that fake person who help him climb up, not through his own efforts. From this, we can deduce that almost all people in higher positions are fake people. This includes most celebrities and the richest people.
 
 **Q: What practical steps can I take to practice discernment in the material realm to reduce struggle?**
 
