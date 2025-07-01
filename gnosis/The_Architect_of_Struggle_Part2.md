@@ -316,6 +316,24 @@ After only six weeks of this treatment with continued micro-adjustments, my next
 
 ## Chapter 4: The Universal Antidote
 
+**Warning:** You are about to be exposed to non-mainstream medical interpretations and information about alternative treatments based on anecdotal elements and unverified third-party claims. If you forget what the [disclaimer](#disclaimer-for-reading-this-material) of this document is, perhaps it's time to review it.
+{: .notice--warning}
+
+### Ad hoc Treatments vs. Self-Medication
+
+Before we delve deeper into some actual substances I used to treat myself, I'd like to discuss the ad hoc treatments I developed and the conventional view on self-medication. 
+
+In the mainstream narrative, self-medication is overwhelmingly regarded as a negative practice and is discouraged by nearly all medical institutions. Their reasons may include: 1. incorrect diagnosis, 2. risky or ineffective treatments, 3. medication misuse or overuse, 4. missed warning signs.
+
+In my worldview, their response to self-medication is as expected because the medical system is a tool designed to control the population. They wouldn’t want individuals to have the ability to treat themselves. Also, that is bad for _profit_, and profit is the unshakable basis of modern medicine.
+
+Nevertheless, I wouldn't dismiss all the reasons they oppose self-medication. In fact, I tend to agree with most of them. Self-medication, such as using an ad hoc treatment to treat myself, can be dangerous. I didn't bring this up before regarding the electric blanket because the treatment devised from that particular device is relatively safe and does not enter the body. However, it's a whole different story when you need to ingest or apply some substance to the body.
+
+The reason I would consider self-medication to be dangerous is precisely the existence of implants. They interfere with all the signals from the body and alter the perception of the central nervous system. While your body regularly sends you signals about how to assist with self-treatment, the signals themselves are tampered with by the implants. That's why a carefully designed detox method is very important. It involves cautious advancements and perceptive observation of any and all reactions of the body and subconscious feedback (signals from the hidden protector). If you are still in the early stage of implant removal, it could be difficult to tell if you can interpret the body's signals correctly, so you must proceed with extreme care. 
+
+Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. Almost all ad hoc treatments cause a certain level of adverse effects on the body, just like any pharmaceuticals have side effects. Sometimes minor damage to the body is necessary before genuine healing, but the effort required for the body to recover from that damage also undermines the overall healing effect. Again, this is where discernment is of vital importance.
+
+
 (to be written)
 
 ## Chapter 5: Common Questions or Challenges
