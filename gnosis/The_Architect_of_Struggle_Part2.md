@@ -333,6 +333,33 @@ The reason I would consider self-medication to be dangerous is precisely the exi
 
 Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. Almost all ad hoc treatments cause a certain level of adverse effects on the body, just like any pharmaceuticals have side effects. Sometimes minor damage to the body is necessary before genuine healing, but the effort required for the body to recover from that damage also undermines the overall healing effect. Again, this is where discernment is of vital importance.
 
+### Discovering Substance Codenamed "Moonlit Elixir"
+
+**Note:** As a convention, In the following content, I will use "I" in places where "you" would seem more appropriate. Read [disclaimer](#disclaimer-for-reading-this-material) at top of this document for more information.
+{: .notice--warning}
+
+Soon after the electric blanket treatment took effect, which was meant to wake up my body, I had a major epiphany about the existence of a certain substance. At that time, I didn't know exactly what it was; I just suddenly knew there should be a liquid substance that could intuitively treat almost all diseases. Then, within weeks, information about this substance with the exact property popped up right in front of me while I was browsing random websites.
+
+For safety reasons, I will not directly refer to its formal name. The use of this particular substance has been circulating in some esoteric medicine circle for a long time. Some people in the circle refer to the substance as "the universal antidote" because they're surprised by what it can do. But they could have easily exaggerated the perceived effectiveness. In this essay, I will use another codename, **"Moonlit Elixir,"** to reference this particular substance.
+
+This particular substance has actually been proven to be medically effective for many conditions by science and has many published peer-reviewed studies in reputable institutes. But for obvious reasons, this information is suppressed, as expected in a hijacked world.
+
+It's important to understand that in mainstream narrative, the phrase "the universal antidote" is not a real concept. It's not possible for there to be a true universal antidote. I mean, if there were, we wouldn't need all those hospitals and doctors, at least not as many.
+
+#### Basic Property of "Moonlit Elixir"
+
+Moonlit Elixir is a derived chemical substance. It can be chemically synthesized in my home if I have the proper knowledge. The ingredients used to synthesize the final products are relatively common and cheap, but it requires a bit of high school chemical knowledge, which by the time people reach adulthood, they have most certainly forgotten.
+
+For this to work, I had to shop for some basic chemical equipment and ingredients for weeks. It's not really that hard, but I always missed something when I started. My profession has absolutely nothing to do with chemistry, as I believe is the case for most people. Therefore, I had to build the synthesis system from the ground up, piece by piece, including retrieving the long-lost knowledge of high school chemistry.
+
+But it finally worked; I have successfully produced Moonlit Elixir in my home. I would first test its alleged disinfectant properties. At that time, I happened to get a small burn on my finger, accidentally, about 5mm by 3mm in size. Because I have a habitual tendency toward self-medication since I was very young, I knew this kind of wound typically takes about two weeks to heal completely. This wound occurring at that critical moment really saddened me because I needed to concentrate on studying Moonlit Elixir. Then it occurred to me that I could try Moonlit Elixir on this new wound. To me, this wound is not trivial, but it is also not very serious. If Moonlit Elixir were to fail, I would have the chance to self-medicate in another way. Perhaps it would take longer, but it was an acceptable risk to me.
+
+After trying Moonlit Elixir on my burn wound, the result astonished me. I applied it like a disinfectant without additional protection, such as a bandage, to shield the wound; it showed no signs of infection within two days. By the third day, the wound was almost healed, with only a thin scab that was already waterproof. Compared to my previous self-medication experience, it would have taken about six or seven days for such a wound to heal to this extent. By the fourth day, the wound was completely healed, almost without a trace. To me, the alleged property of being a perfect disinfectant seems genuine. That convinced me to continue developing other treatments.
+
+
+
+
+
 
 (to be written)
 
