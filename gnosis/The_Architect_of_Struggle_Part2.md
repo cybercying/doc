@@ -431,7 +431,7 @@ I then had this profound realization:
 
 That was the true reason that led to the fracture of the tooth. If the fracture hadn't happened, I wouldn't have had the chance to witness the implant.
 
-#### "Delusional Parasitosis"
+#### Providing Implant Evidence Equates To "Delusional Parasitosis"
 I never told this to anyone except for one of my closest family members. But I didn't show this "evidence" to him. I never showed the evidence to anyone. I didn't know why; I just intuitively knew that maybe I shouldn't do that. 
 
 It turns out my intuition is absolutely correct. As I was doing some other research recently, I discovered there is a psychological term called "matchbox sign" that describes a "symptom" which exactly fits my scenario. 
@@ -440,8 +440,7 @@ If I were to present this "evidence" to anyone else, it would constitute the bas
 
 It's a bit horrifying to even think about the nefariousness behind all these fail-safes. 
 
-### Case Study of "Morgellons Disease"
-
+#### Case Study of "Morgellons Disease"
 In my recent study, I looked into a highly controversial and not officially recognized disease called "Morgellons disease." I then realized that Morgellons disease doesn't merely exist in a conspiracy context. 
 
 This particular condition of "artificial fibers buried deep inside the skin" is actually observed using scientific methods and published in some less prominent peer-reviewed journals, but it is not accepted as mainstream. In the official narrative, this phenomenon simply doesn't exist. 
