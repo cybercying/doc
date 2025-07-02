@@ -467,7 +467,7 @@ Morgellons disease presents a compelling case study to glimpse into what could r
 I will explain the situation in terms of the entity, fake people, and their tactics. I haven't had any interaction with individuals in the Morgellons disease community, nor do I have in-depth knowledge of this particular disease. I can only contemplate things based on what is available on the Internet.
 
 ##### Question Sanity First
-If one discovers physical evidence of artificial implants inside the body and presents it to a medical professional, they will first be questioned about their sanity, perhaps in a less obvious but more subtle way, such as a diagnosis of "psychological issue" or "psychosomatic disorder." 
+If one discovers physical evidence of artificial implants inside the body and presents it to a medical professional, they will first be questioned about their sanity, perhaps in a less obvious but subtler way, such as an assertion of a "psychological issue" or a diagnosis of a "psychosomatic disorder."
 
 The most prominent diagnosis of individuals claiming to have Morgellons disease is "delusional parasitosis," which is an elegant way to say the patient is insane.
 
