@@ -431,25 +431,71 @@ I then had this profound realization:
 
 That was the true reason that led to the fracture of the tooth. If the fracture hadn't happened, I wouldn't have had the chance to witness the implant.
 
-#### Providing Implant Evidence Equates To "Delusional Parasitosis"
+#### Presenting Implant Evidence Equates To "Delusional Parasitosis"
+One might be compelled to tell others, even the doctor, that they made a startling discovery of finding "evidence" of an artificial implant inside their body. However, it might not be such a good idea, as I will elaborate below.
+
 I never told this to anyone except for one of my closest family members. But I didn't show this "evidence" to him. I never showed the evidence to anyone. I didn't know why; I just intuitively knew that maybe I shouldn't do that. 
 
 It turns out my intuition is absolutely correct. As I was doing some other research recently, I discovered there is a psychological term called "matchbox sign" that describes a "symptom" which exactly fits my scenario. 
 
 If I were to present this "evidence" to anyone else, it would constitute the basis of a "delusional parasitosis" diagnosis. If presenting evidence of artificial implants constitutes a diagnosis of potential mental illness, it shows that the entity has already made ample preparations and fail-safes once a select few see through this implant plot, and that fake people (posing as doctors) are on standby to handle any "problems" that might arise. 
 
-It's a bit horrifying to even think about the nefariousness behind all these fail-safes. 
+It's a bit horrifying to even think about the nefariousness behind all these fail-safes.
 
-#### Case Study of "Morgellons Disease"
+In the following section, we will delve into a case study to see what could actually happen if one were to present evidence of artificial implants inside their body to medical professionals.
+
+### Case Study of "Morgellons Disease"
 In my recent study, I looked into a highly controversial and not officially recognized disease called "Morgellons disease." I then realized that Morgellons disease doesn't merely exist in a conspiracy context. 
 
-This particular condition of "artificial fibers buried deep inside the skin" is actually observed using scientific methods and published in some less prominent peer-reviewed journals, but it is not accepted as mainstream. In the official narrative, this phenomenon simply doesn't exist. 
+#### Artificial Fibers Deep Inside the Skin
+This condition of **"artificial fibers buried deep inside the skin,"** as described by many individuals claiming to have Morgellons disease, bears a striking similarity to what I would refer to as an "artificial implant" that facilitates the entity's extensive mind control infrastructure. 
+
+I'm not saying that Morgellons disease is caused by the implants because if the implants function properly, one should not be able to detect their existence, let alone find fibers protruding from the skin. However, I do believe a significant part of Morgellons disease patients have their internal implant networks malfunctioning, causing the implants to behave abnormally.
+
+The condition described by Morgellons disease patients is actually observed using scientific methods and published in some less prominent peer-reviewed journals, but it is not accepted as mainstream. In the official narrative, this phenomenon simply doesn't exist. 
 
 This again proves that science itself is heavily hijacked. No matter what scientific methods one tries to use to prove something, there is always a possibility that official narratives choose not to recognize it. Yet, people still believe that science is somehow credible?
 
+#### Official Narratives vs. Walls In The Truman Show
 If we are in _The Truman Show_, such "official narratives" would be the "wall" on the far side where the sky meets the sea. Upon hearing such a selective "official narrative" and still believing science is credible is just like when one sees the "wall" and still believes there is a sea and sky on the far side.
 
 In my view, there is no other explanation except that the judgment of that person is severely compromised, presumably by the very implant the official narrative tries to deny.
+
+#### What Could Have Really Happened
+Morgellons disease presents a perfect case study to glimpse into what could really happen to one if they were to discover physical evidence of implants inside their body and then present it to a medical professional. 
+
+I will explain the situation in terms of the entity, fake people, and their tactics. I haven't had any interaction with individuals in the Morgellons disease community, nor do I have in-depth knowledge of this particular disease. I can only contemplate things based on what is available on the Internet.
+
+##### Question Sanity First
+If one discovers physical evidence of artificial implants inside the body and presents it to a medical professional, they will first be questioned about their sanity, perhaps in a less obvious but more subtle way, such as a diagnosis of "psychological issue" or "psychosomatic disorder." 
+
+The most prominent diagnosis of individuals claiming to have Morgellons disease is "delusional parasitosis," which is an elegant way to say the patient is insane.
+
+##### Fake Doctor, Fake Lab, Fake Officials
+However, the mere tactic of questioning the sanity of patients alone might not be enough to deal with individuals with analytic minds and critical thinking, as some of these patients might even possess in-depth knowledge of the scientific process. This is where fake people come in. 
+
+The entity and the operatives will, of course, analyze the profile of the incoming patient. If the patient has an analytical mind and critical thinking skills, the following tactic is likely to be adopted.
+
+First, a fake person posing as a doctor will analyze the situation with seemingly genuine passion. They might even employ scientific methods to examine the evidence in detail, including sending it to a lab. However, the lab is also populated with fake people (or "fake lab" for short), who will deliver fake results. If the fake lab strategy doesn't work, and the doctor is able to submit results of implanted evidence to the officials, fake people in the official institution (or "fake officials" for short) will interfere with the process and question their methods. 
+
+##### Compromised Official Narrative and Fake Patient
+This can be proven by the official narrative asserting that _such conditions never existed_. If the official narrative is not compromised, the correct way to describe the fact is "there existed a similar condition; however..." instead of asserting the condition never existed.
+
+One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play.
+
+If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts (or "fake claims") about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
+
+##### Fake Leader and Fake Organization
+More often than not, when things are heating up, they will elect fake people to assemble some kind of organization (or "fake organization") to gather people of similar minds. The intention of the fake organization is not to help these people unite; rather, it wants the people to be in a state of "easy management." The leader of the fake organization (or "fake leader" for short) will appear seemingly sympathetic and passionate to the people inside but will instead provide misleading comments to the outside. 
+
+The duplicity of the fake leader, often manifested in a diagnosed sociopath, is not a sign of a personality disorder but a feature that allows for the presentation of different facts to different people. Therefore, they are able to precisely execute the entity's agenda (or the operatives' script).
+
+This strategy of assembling fake organizations can actually be seen everywhere, particularly in conspiratorial circles. The Flat Earth movement is one of them. I don't deny there is some truth in the Flat Earth theory, but as a whole, Flat Earth just doesn't feel right. That's because Flat Earth movement is also hijacked by fake people. There were once elements the movement that promoted the truth, but the truth is too damaging, so the entity rounded these people up and created the Flat Earth narrative, electing fake people to lead their narratives. In this way, the entity will be able to discredit whatever claims they have as a whole, regardless of whether they are true or not. 
+
+##### Relationship to Conspiracy Theories
+As one can imagine, the same situation is actually happening in every conspiracy theory circle. That's why they are called "conspiracy theories" because of their prominent internal inconsistencies. But if fake people are indeed everywhere, it's conceivable that these inconsistencies are planted by fake people deliberately to discredit those theories as a whole, regardless of how much truth is in them.
+
+
 
 ## Chapter 5: Common Questions or Challenges
 Below I will address some common questions or challenges that an average person may have about what I mentioned above. By answering these questions, I hope one can gain a better understanding of my narrative.
