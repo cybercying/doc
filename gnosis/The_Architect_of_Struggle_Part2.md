@@ -379,6 +379,16 @@ In the context of monitoring your body during the development of an ad hoc treat
 
    This sounds very magical to people who are not familiar with spiritual-based therapy. However, this has happened to me countless times, and every time, the spot marked by the hidden protector has proven to be the accurate and effective location to apply treatments. This is how I became convinced that a hidden protector indeed exists. 
 
+4. **Depression, Anxiety, Irritability, Restlessness, Agitation, and Sleeplessness:**
+
+    These symptoms are often characterized as caused by underlying psychological problems by mainstream narratives. However, I have a different interpretation. I'm not saying that all patients suffering from these symptoms are caused by what I'm about to describe, but I believe a significant portion is. That would explain why mainstream medicine has trouble consistently treating these symptoms and also why these symptoms are so common in modern times.
+
+    I believe these symptoms are caused by the suppression of hidden protector signals, either by lightweight narcotics or the implants. In the early stage of detox method development, a significant amount of lightweight narcotics may still be in your system. Combined with the effect of the implants, signals from the hidden protector are mostly blocked. Because of this, the hidden protector will try other ways to notify you that there is something wrong with your body, manifesting as some kind of urgency in your mind.
+
+    If this is the real cause of these symptoms, fixing psychological problems won't help at all because it's a problem of the body. Since interpreting body signals isn't a reliable option, you must use other methods to identify the true source.
+    
+    Meditation is a good option. When meditating, try to touch or think about various parts of your body. You might gain an epiphany about which part of the body is causing this. The part of the body may include internal organs or systems, even bones or joints that are not directly accessible. Therefore, you must use your imagination to think about those parts and ask the question in your mind to the hidden protector to see if that is where something is wrong.
+
 It's inevitable that you'll start communicating with your hidden protector through trial and error because you have never done this before. The hidden protector never had your ears tuned to its frequency, so it doesn't know what instrument, substance, or treatment is available to it. It doesn't know how to make requests that you would understand. So don't be afraid to perform various experiments to let it know what is available so it can make requests when needed. 
 
 Because the hidden protector does not speak verbally, it can only transmit signals through body sensations, urges, or desires. To establish a vocabulary of what are available, you need to let it _feel_ those things first. Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. 
