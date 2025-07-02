@@ -481,7 +481,8 @@ First, a fake person posing as a doctor will analyze the situation with seemingl
 ##### Compromised Official Narrative and Fake Patient
 This can be proven by the official narrative asserting that _such conditions never existed_. If the official narrative is not compromised, the correct way to describe the fact is "there existed a similar condition; however..." instead of asserting the condition never existed.
 
-One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play. This can relate to what I did described in a earlier subsection titled ["Warning From the Entity Received."](#warning-from-the-entity-received)
+One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play. This can relate to what I described in an earlier subsection
+ titled ["Warning From the Entity Received."](#warning-from-the-entity-received)
 
 If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
 
