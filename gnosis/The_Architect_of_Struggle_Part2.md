@@ -462,7 +462,7 @@ If we are in _The Truman Show_, such "official narratives" would be the "wall" o
 In my view, there is no other explanation except that the judgment of that person is severely compromised, presumably by the very implant the official narrative tries to deny.
 
 #### What Could Have Really Happened
-Morgellons disease presents a perfect case study to glimpse into what could really happen to one if they were to discover physical evidence of implants inside their body and then present it to a medical professional. 
+Morgellons disease presents a compelling case study to glimpse into what could really happen to one if they were to discover physical evidence of implants inside their body and then present it to a medical professional. 
 
 I will explain the situation in terms of the entity, fake people, and their tactics. I haven't had any interaction with individuals in the Morgellons disease community, nor do I have in-depth knowledge of this particular disease. I can only contemplate things based on what is available on the Internet.
 
@@ -481,18 +481,20 @@ First, a fake person posing as a doctor will analyze the situation with seemingl
 ##### Compromised Official Narrative and Fake Patient
 This can be proven by the official narrative asserting that _such conditions never existed_. If the official narrative is not compromised, the correct way to describe the fact is "there existed a similar condition; however..." instead of asserting the condition never existed.
 
-One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play.
+One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play. This can relate to what I did described in a earlier subsection titled ["Warning From the Entity Received."](#warning-from-the-entity-received)
 
-If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts (or "fake claims") about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
+If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
 
 ##### Fake Leader and Fake Organization
 More often than not, when things are heating up, they will elect fake people to assemble some kind of organization (or "fake organization") to gather people of similar minds. The intention of the fake organization is not to help these people unite; rather, it wants the people to be in a state of "easy management." The leader of the fake organization (or "fake leader" for short) will appear seemingly sympathetic and passionate to the people inside but will instead provide misleading comments to the outside. 
 
 The duplicity of the fake leader, often manifested in a diagnosed sociopath, is not a sign of a personality disorder but a feature that allows for the presentation of different facts to different people. Therefore, they are able to precisely execute the entity's agenda (or the operatives' script).
 
-This strategy of assembling fake organizations can actually be seen everywhere, particularly in conspiratorial circles. The Flat Earth movement is one of them. I don't deny there is some truth in the Flat Earth theory, but as a whole, Flat Earth just doesn't feel right. That's because Flat Earth movement is also hijacked by fake people. There were once elements the movement that promoted the truth, but the truth is too damaging, so the entity rounded these people up and created the Flat Earth narrative, electing fake people to lead their narratives. In this way, the entity will be able to discredit whatever claims they have as a whole, regardless of whether they are true or not. 
-
 ##### Relationship to Conspiracy Theories
+This strategy of assembling fake organizations to manage difficult individuals can actually be observed everywhere, particularly in conspiratorial circles. The Flat Earth movement is one of them. I don't deny there is some truth in the Flat Earth theory, but as a whole, Flat Earth just doesn't feel right. That's because Flat Earth movement is also hijacked by fake people.
+
+There were once elements in the movement that promoted the truth, but the truth is too damaging, so the entity rounded these people up and created the Flat Earth narrative, electing fake people to lead their narratives. In this way, the entity will be able to discredit whatever claims they have as a whole, regardless of whether they are true or not. 
+
 As one can imagine, the same situation is actually happening in every conspiracy theory circle. That's why they are called "conspiracy theories" because of their prominent internal inconsistencies. But if fake people are indeed everywhere, it's conceivable that these inconsistencies are planted by fake people deliberately to discredit those theories as a whole, regardless of how much truth is in them.
 
 
