@@ -333,6 +333,42 @@ The reason I would consider self-medication to be dangerous is precisely the exi
 
 While self-medication can be dangerous, it doesn't mean reliance on mainstream medicine is any safer. Though mainstream medicine does not intend to harm patients, its main objective is to make patients dependent on it. Instead of curing the patient, mainstream medicine prefers to keep treating the patient without completely curing them. This potentially means they will inadvertently harm the patient in order to balance the effectiveness of treatment.
 
+As developing ad hoc treatments inherently implies self-medication without external help, it’s vital that you understand how communication with your body works, so we’ll discuss this further in the next section.
+
+### Communicate with Your Body
+
+It's important to know that the "you," the conscious part of you, isn't the only part of you. There are many parts of you inside yourself that you are not consciously aware of. At least you won't be if you haven't paid attention or learned how to be aware.
+
+The conscious part of you is in charge of interfacing with the external world. You can see, hear, talk, smell, taste, touch, and sense so you think you are in control. You are not, you are only part of the team that make up your whole person. For example, you don't know how your blood flows through your arteries. Is knowing how blood flows important? You bet; the blood flow fluctuates and adapts in real-time with micro-adjustments every moment. Someone or something must be in control; you're just not aware of it. 
+
+In mainstream narratives, these phenomena are controlled by the "autonomic nervous system", which is a material way to describe it. In a _spiritual way_, you can see that another part of your soul is mediating all those internal systems so that the conscious part of you can live vibrantly. As described in earlier text, I called the subconscious part of the soul that is in charge of protecting your body the _hidden protector_. You and your hidden protector are part of the same team. You are of the same soul, but the way the material realm is designed makes you unaware of each other's existence. But actually, you are; you just need to learn how to be aware.
+
+Because you are responsible for interfacing with the external world, you possess knowledge of many things, including techniques, substances, instruments, characteristics, and procurement. You spent years acquiring these knowledge; it is extremely complex. However, the hidden protector possesses knowledge that is equally complex, if not more so. It understands how the heart beats, how muscles contract, how the kidney filters, how the liver detoxifies, etc. I mean, that's got to be hard enough, right? You both possess knowledge that the other part doesn't. That makes you both indispensable in maintaining a healthy life. You just need to learn how to communicate with one another.
+
+There’s really no way I can teach you how to do this by just writing some essay because it’s your body, not mine. We all have bodies that work slightly differently. But like communication skills among people, there are some systematic approaches that can still be described in text. So I’ll try my best to do that.
+
+In the context of monitoring your body during the development of an ad hoc treatment, following phenenoma can occur and may indicate communcation signals from your hidden protector.
+
+1. **Sympathetic Symptoms:** 
+
+   The first case is that, when you treat a part of your body, another part of the body that is far away and not obviously connected to the part you are treating begins exhibiting the same symptom. For example, when you treat a spot on your left arm, the same spot on your right arm, which was previously asymptomatic, exhibits the same symptom as the one on the left arm at the exact moment you perform treatment on the left arm.
+
+   The left arm and right arm are not anatomically connected directly, but they are connected to the same nervous system. So, it's safe to say this is your hidden protector at work. When this happen, it's probably mean the right arm needs the same treatment just like the left arm.
+
+   Sympathetic symptoms can occur in various ways, and they should not be interpreted the same way. For example, the treatment of body part A with symptom A inducing body part B with symptom B is not the same as the example described above. It is often a mistake to regard the treatment of body part A as the cause of symptom B if there is not an obvious way these two parts are connected, but this is not a hard rule. You simply have to listen to your hidden protector carefully.
+
+2. **Visible Fatigue Right Before Or After Treatment:**
+   
+   For example, when you wake up from a nap, you suddenly feel a body part exhibit symptom, or right after you perform treatment to a body part, you suddenly become very sleepy or very tired.
+   
+   This is often a signal coming from hidden protector. Do not ignore these signals, they are very important. People do not just get tired at random moment. They all have reasons behind, you are just not consciously aware. I'll explain some possibilities as follows:
+
+   Visible fatigue right before symptom exhibition could mean that the part of the body in need of treatment requires momentum build-up to start healing. That's right; contrary to the mainstream narrative, which often suggests that treatment can be performed at any time, it cannot. Most treatments must be performed only when the body is ready; otherwise, they either cause harm or are ineffective.
+
+   Visible fatigue right after treatment could mean the treatment is effective. Your part is done; now a high-intensity internal detox is in progress, and you need to let the hidden protector concentrate. This means you are not going to stand in its way or share its energy at the same time. You need to step aside to let it work. If you don't rest at that exact moment, you'll lose the chance to do the high-intensity detox because your body is in a constant state of flux. To do it right, it needs to be in that specific state, or it won't work, and you'll have to do it all over again later.
+
+It's inevitable that you'll start communicating with your hidden protector through trial and error because you have never done this before. The hidden protector never had your ears tuned to its frequency, so it doesn't know what instrument, substance, or treatment is available to it. It doesn't know how to make requests that you would understand. So don't be afraid to perform various experiments to let it know what is available so it can make requests later. Because the hidden protector does not speak verbally, it can only transmit signals through body sensations, urges, or desires. To establish a vocabulary of what are available, you need to let it feel those things first.
+
 Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. Almost all ad hoc treatments cause a certain level of adverse effects on the body, just like any pharmaceuticals have side effects. Sometimes minor damage to the body is necessary before genuine healing, but the effort required for the body to recover from that damage also undermines the overall healing effect. Again, this is where discernment is of vital importance.
 
 ### Discovering Substance Codenamed "Moonlit Elixir"
