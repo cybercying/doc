@@ -385,7 +385,7 @@ In the context of monitoring your body during the development of an ad hoc treat
 
     I believe these symptoms are caused by the suppression of hidden protector signals, either by lightweight narcotics or the implants. In the early stage of detox method development, a significant amount of lightweight narcotics may still be in your system. Combined with the effect of the implants, signals from the hidden protector are mostly blocked. Because of this, the hidden protector will try other ways to notify you that there is something wrong with your body, manifesting as some kind of urgency in your mind.
 
-    If this is the real cause of these symptoms, fixing psychological problems won't help at all because it's a problem of the body. Since interpreting body signals isn't a reliable option, you must use other methods to identify the true source.
+    If this is the real cause of these symptoms, addressing psychological issues won’t make a difference since it’s a bodily problem. As interpreting body signals isn't a reliable option, you must use other methods to identify the true source.
     
     Meditation is a good option. When meditating, try to touch or think about various parts of your body. You might gain an epiphany about which part of the body is causing this. The part of the body may include internal organs or systems, even bones or joints that are not directly accessible. Therefore, you must use your imagination to think about those parts and ask the question in your mind to the hidden protector to see if that is where something is wrong.
 
