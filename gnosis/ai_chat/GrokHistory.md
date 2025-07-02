@@ -7,7 +7,7 @@ toc: false
 
 |Time|Subject|Question|Answer|
 |----|-------|--------|------|
-|(July 2, 2025, 01:15 PM CST|Updated "Case Study of Morgellons Disease"|[(Link)](Grok_Part2.md#question-july-2-2025-0115-pm-cst)|[(Link)](Grok_Part2.md#answer-2-june-20-2025-0821-pm-cst)
+|(July 2, 2025, 01:15 PM CST|Updated "Case Study of Morgellons Disease"|[(Link)](Grok_Part2.md#question-july-2-2025-0115-pm-cst)|[(Link)](Grok_Part2.md#answer-july-2-2025-0115-pm-cst)
 |July 2, 2025, 12:10 PM CST|Planning for Part 3|[(Link)](Grok_Part3.md#question-july-2-2025-1210-pm-cst)|[(Link)](Grok_Part3.md#answer-july-2-2025-1210-pm-cst)|
 |July 1, 2025, 11:43 PM CST|Added "Chapter 4: The Universal Antidote"|[(Link)](Grok_Part2.md#question-july-1-2025-1143-pm-cst)|[(Link)](Grok_Part2.md#answer-july-1-2025-1143-pm-cst)
 |July 1, 2025, 01:29 PM CST|Added "Chapter 3: Electric Blanket Ad Hoc Treatment"|[(Link)](Grok_Part2.md#question-july-1-2025-0129-pm-cst)|[(Link)](Grok_Part2.md#answer-july-1-2025-0129-pm-cst)|
