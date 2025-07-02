@@ -466,7 +466,7 @@ In my view, there is no other explanation except that the judgment of that perso
 #### What Could Have Really Happened
 Morgellons disease presents a compelling case study to glimpse into what could really happen to one if they were to discover physical evidence of implants inside their body and then present it to a medical professional. 
 
-I will explain the situation in terms of the entity, fake people, and their tactics. I haven't had any interaction with individuals in the Morgellons disease community, nor do I have in-depth knowledge of this particular disease. I can only contemplate things based on what is available on the Internet.
+Below, I will explain the circumstances surrounding individuals related to Morgellons disease in terms of the entity, fake people, and their tactics. I haven't had any interaction with individuals in the Morgellons disease community, nor do I have in-depth knowledge of this particular disease. I can only contemplate things based on what is available on the Internet.
 
 ##### Question Sanity First
 If one discovers physical evidence of artificial implants inside the body and presents it to a medical professional, they will first be questioned about their sanity, perhaps in a less obvious but subtler way, such as an assertion of a "psychological issue" or a diagnosis of a "psychosomatic disorder."
