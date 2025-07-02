@@ -339,7 +339,7 @@ As developing ad hoc treatments inherently implies self-medication without exter
 
 It's important to know that the "you," the conscious part of you, isn't the only part of you. There are many parts of you inside yourself that you are not consciously aware of. At least you won't be if you haven't paid attention or learned how to be aware.
 
-The conscious part of you is in charge of interfacing with the external world. You can see, hear, talk, smell, taste, touch, and sense so you think you are in control. You are not, you are only part of the team that make up your whole person. For example, you don't know how your blood flows through your arteries. Is knowing how blood flows important? You bet; the blood flow fluctuates and adapts in real-time with micro-adjustments every moment. Someone or something must be in control; you're just not aware of it. 
+The conscious part of you is in charge of interfacing with the external world. You can see, hear, talk, smell, taste, touch, and sense so you think you are in control. You are not; you are only part of the team that makes up your whole person. For example, you don't know how your blood flows through your arteries. Is knowing how blood flows important? You bet; the blood flow fluctuates and adapts in real-time with micro-adjustments every moment. Someone or something must be in control; you're just not aware of it. 
 
 In mainstream narratives, these phenomena are controlled by the "autonomic nervous system", which is a material way to describe it. In a _spiritual way_, you can see that another part of your soul is mediating all those internal systems so that the conscious part of you can live vibrantly. As described in earlier text, I called the subconscious part that is in charge of protecting your body the _hidden protector_. You and your hidden protector are part of the same team. You are of the same soul, but the way the material realm is designed makes you unaware of each other's existence. But actually, you are; you just need to master it.
 
@@ -347,7 +347,7 @@ Because you are responsible for interfacing with the external world, you possess
 
 There’s really no way I can teach you how to do this by just writing some essay because it’s your body, not mine. We all have bodies that work slightly differently. But like communication skills among people, there are some systematic approaches that can still be described in text. So I’ll try my best to do that.
 
-In the context of monitoring your body during the development of an ad hoc treatment, following phenenoma can occur and may indicate communcation signals from your hidden protector.
+In the context of monitoring your body during the development of an ad hoc treatment, following phenomena can occur and may indicate communcation signals from your hidden protector.
 
 1. **Sympathetic Symptoms:** 
 
