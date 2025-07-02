@@ -367,6 +367,18 @@ In the context of monitoring your body during the development of an ad hoc treat
 
    Visible fatigue right after treatment could mean the treatment is effective. Your part is done; now a high-intensity internal detox is in progress, and you need to let the hidden protector concentrate. This means you are not going to stand in its way or share its energy at the same time. You need to step aside to let it work. If you don't rest at that exact moment, you'll lose the chance to do the high-intensity detox because your body is in a constant state of flux. To do it right, it needs to be in that specific state, or it won't work, and you'll have to do it all over again later.
 
+3. **Consistent Mild Itching Sensations Over an Area of Skin:**
+
+   Itching sensations on the skin are almost unmistakably a sign that treatment is required. If itching comes from deep inside, it means higher pressure is needed (such as instrument assisted massage). 
+   
+   If itching sensations occur in an area of skin instead of a spot, usually it will be mild and barely noticeable. "Consistent" in this context does not mean the sensation always exists; it means the sensation could occur intermittently but always in the same area. 
+
+   Often, this suggests that treatment is required, but the specific location has not yet been identified by the hidden protector. It needs you to help it identify by applying various _touch therapies_. If the correct touch therapy is applied, the area will shrink, and sensation will become stronger, suggesting the area specificity has increased. 
+   
+   When the area shrinks to almost a point, the sensation may either become very itchy or even cause intermittent pain. When this happens, there could be visible signs appearing on the skin. That is where the hidden protector wants to apply the treatment by marking it for you.
+
+   This sounds very magical to people who are not familiar with spiritual-based therapy. However, this has happened to me countless times, and every time, the spot marked by the hidden protector has proven to be the accurate and effective location to apply treatments. This is how I became convinced that a hidden protector indeed exists. 
+
 It's inevitable that you'll start communicating with your hidden protector through trial and error because you have never done this before. The hidden protector never had your ears tuned to its frequency, so it doesn't know what instrument, substance, or treatment is available to it. It doesn't know how to make requests that you would understand. So don't be afraid to perform various experiments to let it know what is available so it can make requests when needed. 
 
 Because the hidden protector does not speak verbally, it can only transmit signals through body sensations, urges, or desires. To establish a vocabulary of what are available, you need to let it _feel_ those things first. Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. 
