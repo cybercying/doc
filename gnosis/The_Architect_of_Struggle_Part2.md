@@ -489,7 +489,7 @@ One might wonder why the officials act as if they are compromised. Doesn't that 
 If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
 
 ##### Fake Leader and Fake Organization
-More often than not, when things are heating up, they will elect fake people to assemble some kind of organization (or "fake organization") to gather people of similar minds. The intention of the fake organization is not to help these people unite; rather, it wants the people to be in a state of "easy management." The leader of the fake organization (or "fake leader" for short) will appear seemingly sympathetic and passionate to the people inside but will instead provide misleading comments to the outside. 
+More often than not, when things are heating up, they will elect fake people to assemble some kind of organization (or "fake organization" for short) to gather people of similar minds. The intention of the fake organization is not to help these people unite; rather, it wants the people to be in a state of "easy management." The leader of the fake organization (or "fake leader" for short) will appear seemingly sympathetic and passionate to the people inside but will instead provide misleading comments to the outside. 
 
 The duplicity of the fake leader, often manifested in a diagnosed sociopath, is not a sign of a personality disorder but a feature that allows for the presentation of different facts to different people. Therefore, they are able to precisely execute the entity's agenda (or the operatives' script).
 
