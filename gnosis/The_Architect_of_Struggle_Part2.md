@@ -381,7 +381,7 @@ In the context of monitoring your body during the development of an ad hoc treat
 
 4. **Depression, Anxiety, Irritability, Restlessness, Agitation, and Sleeplessness:**
 
-    These symptoms are often characterized as caused by underlying psychological problems by mainstream narratives. However, I have a different interpretation. I'm not saying that all patients suffering from these symptoms are caused by what I'm about to describe, but I believe a significant portion is. That would explain why mainstream medicine has trouble consistently treating these symptoms and also why these symptoms are so common in modern times.
+    Mainstream narratives often attribute these symptoms to underlying psychological issues. Nonetheless, I have a different interpretation. I’m not claiming that every patient experiencing these symptoms is due to what I’m about to describe, but I think a considerable part is. This could explain why conventional medicine struggles to effectively address these symptoms and why they are so prevalent today. 
 
     I believe these symptoms are caused by the suppression of hidden protector signals, either by lightweight narcotics or the implants. In the early stage of detox method development, a significant amount of lightweight narcotics may still be in your system. Combined with the effect of the implants, signals from the hidden protector are mostly blocked. Because of this, the hidden protector will try other ways to notify you that there is something wrong with your body, manifesting as some kind of urgency in your mind.
 
