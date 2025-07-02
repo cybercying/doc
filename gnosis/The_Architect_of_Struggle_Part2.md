@@ -447,7 +447,7 @@ It's a bit horrifying to even think about the nefariousness behind all these fai
 In the following section, we will delve into a case study to see what could actually happen if one were to present evidence of artificial implants inside their body to medical professionals.
 
 ### Case Study of "Morgellons Disease"
-In my recent study, I looked into a highly controversial and not officially recognized disease called "Morgellons disease." I then realized that Morgellons disease doesn't merely exist in a conspiracy context. 
+In my recent study, I looked into a highly controversial and not officially recognized disease called "Morgellons disease." I realized Morgellons disease isn't merely a conspiracy.
 
 #### Artificial Fibers Deep Inside the Skin
 This condition of **"artificial fibers buried deep inside the skin,"** as described by many individuals claiming to have Morgellons disease, bears a striking similarity to what I would refer to as an "artificial implant" that facilitates the entity's extensive mind control infrastructure. 
@@ -474,19 +474,19 @@ If one discovers physical evidence of artificial implants inside the body and pr
 The most prominent diagnosis of individuals claiming to have Morgellons disease is "delusional parasitosis," which is an elegant way to say the patient is insane.
 
 ##### Fake Doctor, Fake Lab, Fake Officials
-However, the mere tactic of questioning the sanity of patients alone might not be enough to deal with individuals with analytic minds and critical thinking, as some of these patients might even possess in-depth knowledge of the scientific process. This is where fake people come in. 
+Questioning sanity alone may not deter analytical patients with critical thinking skills. Some of these individuals might even possess in-depth knowledge of the scientific process. This is where fake people come in. 
 
 The entity and the operatives will, of course, analyze the profile of the incoming patient. If the patient has an analytical mind and critical thinking skills, the following tactic is likely to be adopted.
 
-First, a fake person posing as a doctor will analyze the situation with seemingly genuine passion. They might even employ scientific methods to examine the evidence in detail, including sending it to a lab. However, the lab is also populated with fake people (or "fake lab" for short), who will deliver fake results. If the fake lab strategy doesn't work, and the doctor is able to submit results of implanted evidence to the officials, fake people in the official institution (or "fake officials" for short) will interfere with the process and question their methods. 
+First, a fake person posing as a doctor will analyze the situation with seemingly genuine passion. They might even employ scientific methods to examine the evidence in detail, including sending it to a lab. However, the lab is also populated with fake people (or "fake lab" for short), who will deliver fake results. If the fake lab strategy doesn't work, and the doctor is able to submit lab results of implant evidence to the officials, fake people in the official institution (or "fake officials" for short) will interfere with the process and question their methods. 
 
 ##### Compromised Official Narrative and Fake Patient
 This can be proven by the official narrative asserting that _such conditions never existed_. If the official narrative is not compromised, the correct way to describe the fact is "there existed a similar condition; however..." instead of asserting the condition never existed.
 
-One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that officials are compromised suggests a much larger plot is at play. This can relate to what I described in an earlier subsection
+One might wonder why the officials act as if they are compromised. Doesn't that arouse suspicion? My answer is that _they want you to know they are compromised_. Any individual with critical thinking will see this right through and will be discouraged from taking further action. The fact that even officials are compromised suggests a much larger plot is at play. This can relate to what I described in an earlier subsection
  titled ["Warning From the Entity Received."](#warning-from-the-entity-received)
 
-If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
+If the situation is becoming dire, they may even elect a fake person to pose as a patient (or "fake patient" for short) to present manipulated facts (or "fake claims" for short) about the disease, and the fake officials might even acknowledge these fake claims only to later dismiss them due to methodological problems.
 
 ##### Fake Leader and Fake Organization
 More often than not, when things are heating up, they will elect fake people to assemble some kind of organization (or "fake organization" for short) to gather people of similar minds. The intention of the fake organization is not to help these people unite; rather, it wants the people to be in a state of "easy management." The leader of the fake organization (or "fake leader" for short) will appear seemingly sympathetic and passionate to the people inside but will instead provide misleading comments to the outside. 
