@@ -516,7 +516,9 @@ It's a bit horrifying to even think about the nefariousness behind all these fai
 In the following section, we will delve into a case study to see what could actually happen if one were to present evidence of artificial implants inside their body to medical professionals.
 
 ### Case Study of "Morgellons Disease"
-In my recent study, I looked into a highly controversial and not officially recognized disease called "Morgellons disease." I realized Morgellons disease isn't merely a conspiracy.
+In my recent study, I examined a highly controversial and not officially recognized disease called "Morgellons disease," which seems to resonate with my theory of a pervasive system of artificial implant inside human body in many ways. 
+
+My previous impression was that this particular disease seems to be conspiratorial by nature. However, after studying, I realized Morgellons disease isn't merely a conspiracy; it has its scientific basis.
 
 #### Artificial Fibers Deep Inside the Skin
 This condition of **"artificial fibers buried deep inside the skin,"** as described by many individuals claiming to have Morgellons disease, bears a striking similarity to what I would refer to as an "artificial implant" that facilitates the entity's extensive mind control infrastructure. 
