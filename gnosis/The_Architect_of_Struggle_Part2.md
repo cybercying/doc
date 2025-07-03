@@ -523,7 +523,9 @@ My previous impression was that this particular disease seems to be conspiratori
 #### Artificial Fibers Deep Inside the Skin
 This condition of **"artificial fibers buried deep inside the skin,"** as described by many individuals claiming to have Morgellons disease, bears a striking similarity to what I would refer to as an "artificial implant" that facilitates the entity's extensive mind control infrastructure. 
 
-I'm not saying that Morgellons disease is directly caused by the implants because if the implants function properly, one should not be able to detect their existence, let alone find fibers protruding from the skin. However, I do believe a significant part of Morgellons disease patients have their internal implant networks malfunctioning, causing the implants to behave abnormally.
+I'm not saying that Morgellons disease is directly caused by the implants because if the implants function properly, one should not be able to detect their existence, let alone find fibers protruding from the skin. However, I do believe a significant part of Morgellons disease patients have their internal implant networks malfunctioning, causing the implants to behave abnormally. 
+
+In other words, in my worldview, a significant part of Morgellons disease is caused by something that has led to the patients' internal implant networks malfunctioning. That something certainly is not what I would call a _proper detox procedure_, because a proper procedure would dismantle the implant networks and render the implants harmless and able to be expelled by the body safely, rather than "protruding out of the skin".
 
 The condition described by Morgellons disease patients is actually observed using scientific methods and published in some less prominent peer-reviewed journals, but it is not accepted as mainstream. In the official narrative, this phenomenon simply doesn't exist. 
 
