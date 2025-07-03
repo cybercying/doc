@@ -565,7 +565,7 @@ The duplicity of the fake leader, often manifested in a diagnosed sociopath, is 
 ##### Relationship to Conspiracy Theories
 This strategy of assembling fake organizations to manage difficult individuals can actually be observed everywhere, particularly in conspiratorial circles. The Flat Earth movement is one of them. I don't deny there is some truth in the Flat Earth theory, but as a whole, Flat Earth just doesn't feel right. That's because Flat Earth movement is also hijacked by fake people.
 
-There were once elements in the movement that promoted the truth, but the truth is too damaging, so the entity rounded these people up and created the Flat Earth narrative, electing fake people to lead their narratives. In this way, the entity will be able to discredit whatever claims they have as a whole, regardless of whether they are true or not. 
+There were once elements in the movement that promoted the truth, but the truth was too damaging, so the entity rounded these people up and created the Flat Earth narrative, electing fake people to lead their narratives. In this way, the entity will be able to incite people to discredit whatever claims they have as a whole, regardless of whether they are true or not. 
 
 As one can imagine, the same situation is actually happening in every conspiracy theory circle. That's why they are called "conspiracy theories" because of their prominent internal inconsistencies. But if fake people are indeed everywhere, it's conceivable that these inconsistencies are planted by fake people deliberately to discredit those theories as a whole, regardless of how much truth is in them.
 
