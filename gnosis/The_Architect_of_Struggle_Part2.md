@@ -347,9 +347,9 @@ In mainstream narratives, these bodily phenomena of which you are unaware are re
 
 Because you are responsible for interfacing with the external world, you possess knowledge of many things, including techniques, substances, instruments, characteristics, and procurement. You spent years acquiring these knowledge; it is extremely complex. However, the hidden protector possesses knowledge that is equally complex, if not more so. It understands how the heart beats, how muscles contract, how the kidney filters, how the liver detoxifies, etc. I mean, that's got to be complicated enough, right? You both possess knowledge that the other part doesn't. That makes you both indispensable in maintaining a healthy life. You just need to learn how to communicate with one another.
 
-#### Signs Of Communcation
 There’s really no way I can teach you how to do this by just writing some essay because it’s your body, not mine. We all have bodies that work slightly differently. But like communication skills among people, there are some systematic approaches that can still be described in text. So I’ll try my best to do that.
 
+#### Signs Of Communcation
 In the context of monitoring your body during the development of an ad hoc treatment, following phenomena can occur and may indicate communcation signals from your hidden protector.
 
 1. **Sympathetic Symptoms:** 
