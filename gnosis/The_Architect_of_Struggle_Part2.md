@@ -501,7 +501,7 @@ I then had this profound realization:
 That was the true reason that led to the fracture of the tooth. If the fracture hadn't happened, I wouldn't have had the chance to witness the implant.
 
 #### Presenting Implant Evidence Equates To "Delusional Parasitosis"
-One might be compelled to tell others, even the doctor, that they made a startling discovery of finding "evidence" of an artificial implant inside their body. However, it might not be such a good idea, as I will elaborate below.
+One might be compelled to tell others, even the doctor, when they made a startling discovery of finding "evidence" of an artificial implant inside their body. However, it might not be such a good idea, as I will elaborate below.
 
 Following the discovery of artificial fibers inside my molar, I have since collected several samples as "evidence" of the existence of implants. I never told this to anyone except for one of my closest family members. However, I didn't show this "evidence" to them. I never showed the evidence to anyone. I didn't know why; I just intuitively knew that maybe I shouldn't do that. 
 
