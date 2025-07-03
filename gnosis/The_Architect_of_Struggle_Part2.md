@@ -337,14 +337,17 @@ As developing ad hoc treatments inherently implies self-medication without exter
 
 ### Communicate with Your Body
 
+#### "You" Are Not One, but Many
 It's important to know that the "you," the conscious part of you, isn't the only part of you. There are many parts of you inside yourself that you are not consciously aware of. At least you won't be if you haven't paid attention or learned how to be aware.
 
 The conscious part of you is in charge of interfacing with the external world. You can see, hear, talk, smell, taste, touch, and sense so you think you are in control. You are not; you are only part of the team that makes up your whole person. For example, you don't know how your blood flows through your arteries. Is knowing how blood flows important? You bet; the blood flow fluctuates and adapts in real-time with micro-adjustments every moment. Someone or something must be in control; you're just not aware of it. 
 
-In mainstream narratives, these phenomena are controlled by the "autonomic nervous system", which is a material way to describe it. In a _spiritual way_, you can see that another part of your soul is mediating all those internal systems so that the conscious part of you can live vibrantly. As described in earlier text, I called the subconscious part that is in charge of protecting your body the _hidden protector_. You and your hidden protector are part of the same team. You are of the same soul, but the way the material realm is designed makes you unaware of each other's existence. But actually, you are; you just need to master it.
+#### "Autonomic Nervous System" or Hidden Protector
+In mainstream narratives, these bodily phenomena of which you are unaware are regulated by the "autonomic nervous system," which is a material way to describe it. In a _spiritual way_, you can see that another part of your soul is mediating all those internal systems so that the conscious part of you can live vibrantly. As described in earlier text, I called the subconscious part that is in charge of protecting your body the _hidden protector_. You and your hidden protector are part of the same team. You are of the same soul, but the way the material realm is designed makes you unaware of each other's existence. But actually, you are; you just need to master it.
 
 Because you are responsible for interfacing with the external world, you possess knowledge of many things, including techniques, substances, instruments, characteristics, and procurement. You spent years acquiring these knowledge; it is extremely complex. However, the hidden protector possesses knowledge that is equally complex, if not more so. It understands how the heart beats, how muscles contract, how the kidney filters, how the liver detoxifies, etc. I mean, that's got to be complicated enough, right? You both possess knowledge that the other part doesn't. That makes you both indispensable in maintaining a healthy life. You just need to learn how to communicate with one another.
 
+#### Signs Of Communcation
 There’s really no way I can teach you how to do this by just writing some essay because it’s your body, not mine. We all have bodies that work slightly differently. But like communication skills among people, there are some systematic approaches that can still be described in text. So I’ll try my best to do that.
 
 In the context of monitoring your body during the development of an ad hoc treatment, following phenomena can occur and may indicate communcation signals from your hidden protector.
@@ -389,12 +392,14 @@ In the context of monitoring your body during the development of an ad hoc treat
     
     Meditation is a good option. When meditating, try to touch or think about various parts of your body. You might gain an epiphany about which part of the body is causing this. The part of the body may include internal organs or systems, even bones or joints that are not directly accessible. Therefore, you must use your imagination to think about those parts and ask the question in your mind to the hidden protector to see if that is where something is wrong.
 
+#### Communication Tips
 It's inevitable that you'll start communicating with your hidden protector through trial and error because you have never done this before. The hidden protector never had your ears tuned to its frequency, so it doesn't know what instrument, substance, or treatment is available to it. It doesn't know how to make requests that you would understand. So don't be afraid to perform various experiments to let it know what is available so it can make requests when needed. 
 
 Because the hidden protector does not speak verbally, it can only transmit signals through body sensations, urges, or desires. To establish a vocabulary of what are available, you need to let it _feel_ those things first. Your body is resilient; don't be afraid to make some mistakes, but also don't risk too much to do something that can cause a lot of harm. If there are several choices of ad hoc treatment available, always choose the safest one first. 
 
 While the hidden protector does not communicate verbally, you _can_ speak to it verbally. It's actually a good practice to do so. I've been speaking to myself since my youth when I was self-medicating; I didn't know why, but it often leads to a desired answer. I now realize that the hidden protector was listening to me and responding in a subconscious way. Try to practice asking yourself questions like, "Am I doing this right? Is this what you want?" When confused about multiple choices, ask yourself, "There is A, B, C. I don't know which one to choose. I'm so confused; can you please tell me what you really want?" When doing this, you can say it out loud and look in the mirror as you're literally speaking to another version of yourself. In my experience, saying it out loud often works better than just thinking it. It's a bit strange if you live with family, but it really worked for me.
 
+#### Cautions of Adverse Effects
 Almost all ad hoc treatments cause a certain level of adverse effects on the body, just like any pharmaceuticals have side effects. Sometimes minor damage to the body is necessary before genuine healing, but the effort required for the body to recover from that damage also undermines the overall healing effect. Again, this is where discernment is of vital importance.
 
 ### Discovering Substance Codenamed "Moonlit Elixir"
