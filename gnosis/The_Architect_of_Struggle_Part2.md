@@ -573,9 +573,41 @@ There were once elements in the movement that promoted the truth, but the truth 
 
 As one can imagine, the same situation is actually happening in every conspiracy theory circle. That's why they are called "conspiracy theories" because of their prominent internal inconsistencies. But if fake people are indeed everywhere, it's conceivable that these inconsistencies are planted by fake people deliberately to discredit those theories as a whole, regardless of how much truth is in them.
 
+## Chapter 5: Moderate-Level Implant Detoxification
+
+In this chapter, we will glimpse into what we can expect when we pass the initial detox stage, where significant lightweight narcotics are present and the implant network is mostly intact. In this stage, which we will be referring to as the moderate-level of implant detox, most lightweight narcotics are cleared, and one should have learned to communicate with the hidden protector more effectively. The implant network is beginning to fail, and fragments of microscopic implants are starting to be expelled from the body.
+
+### Epiphanies of Genuine Health
+
+Before we delve into specifics of detox, I’d like to share some insights on genuine health that emerged from my epiphanies during this moderate-level implant detox. Many ideas may contradict with mainstream narratives.
+
+1. **Toothpaste mainly functions as a lightweight narcotic for tooth health.**   
+   I discovered that the true function of toothpaste is to numb the sensation of any tooth decay or gum issues from being detected by the nervous system. That's why tooth decay is more common in humans than in animals. Animals simply don't use toothpaste or brush their teeth. In the absence of a replacement, simply stop using any toothpaste (combined with moderate oral cleansing with just water) to improve oral health.
+
+2. **Insufficient salt intake causes numerous health problems.**  
+   Salt is an essential element for normal bodily functions. Due to the discipline imposed by mainstream narratives, modern individuals often have insufficient salt intake, with many at serious levels. Contrary to mainstream narratives, excessive salt intake is easily expelled by the body, while insufficient salt intake could cause the kidneys to work overload to recycle salt. If one has reached moderate-level implant detox, one should have restored most body feedback functions. One should consume whatever amount of salt one's body desires.
+
+   As a tip to deal with the low-salt diet situation that is very common in many restaurants, I always carry a small bottle of salt in my pocket in case I feel the food isn't salty enough.
+
+3. **Teeths and gums can repair themselves rapidly.**
+   If one has reached moderate-level implant detox, one's teeth and gums can repair themselves rapidly when the damage is relatively small. One will never have to worry about miniature cavities or minor tooth decay. Unless there is a hole that is large enough to be visible to the naked eye, they usually heal themselves. This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; individuals can only recognize the issue when it becomes more serious than the body can heal on its own.
+
+   To heal the tooth and gum manually, one needs special knowledge. I gained mine through an epiphany while surfing the Internet. The knowledge is out there, mixed with confusing information. One needs to leverage the hidden protector's help to identify the suitable knowledge. The treatment that manually heals tooth and gum usually doesn't require special equipment or substances. Knowledge alone is sufficient.
+
+4. **A more serious condition could block the detection of minor condition.**
+   The hidden protector tends to prioritize its efforts toward more serious problems. If there is a persistent condition that always bothers one, one should address that problem promptly; otherwise, it could hide the existence of many other issues due to prioritization.
+   
+   Some issues, such as nasal congestion, while considered mild by mainstream narrative, can actually be a great hindrance to the hidden protector's efforts. People are conditioned to ignore many bodily issues when the mainstream narrative doesn't really provide a solution. But one should use one's subjective discernment to determine which issue is more serious rather than rely on mainstream narratives. 
+   
+   For example, nasal congestion affects breathing, which impacts the brain's oxygen intake. This is obviously a very serious condition, but is often underestimated by people. Others, such as chronic breathing difficulty, chronic neck pain during head movement, or chronic joint pain during limb movement, can also be very serious conditions one should not take lightly.
+
+   Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certainly have blocking effects on a successful detox.
 
 
-## Chapter 5: Common Questions or Challenges
+
+
+
+## Chapter 6: Common Questions or Challenges
 Below I will address some common questions or challenges that an average person may have about what I mentioned above. By answering these questions, I hope one can gain a better understanding of my narrative.
 
 **Q: What practical steps can I take to practice discernment in the material realm to reduce struggle?**
