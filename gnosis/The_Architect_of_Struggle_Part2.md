@@ -584,19 +584,23 @@ In this chapter, we will glimpse into what we can expect when we pass the initia
 Before we delve into specifics of detox, I’d like to share some insights on genuine health that emerged from my epiphanies during this moderate-level implant detox. Many ideas may contradict with mainstream narratives.
 
 1. **Toothpaste mainly functions as a lightweight narcotic for tooth health.**   
+
    I discovered that the true function of toothpaste is to numb the sensation of any tooth decay or gum issues from being detected by the nervous system. That's why tooth decay is more common in humans than in animals. Animals simply don't use toothpaste or brush their teeth. In the absence of a replacement, simply stop using any toothpaste (combined with moderate oral cleansing with just water) to improve oral health.
 
 2. **Insufficient salt intake causes numerous health problems.**  
+
    Salt is an essential element for normal bodily functions. Due to the discipline imposed by mainstream narratives, modern individuals often have insufficient salt intake, with many at serious levels. Contrary to mainstream narratives, excessive salt intake is easily expelled by the body, while insufficient salt intake could cause the kidneys to work overload to recycle salt. If one has reached moderate-level implant detox, one should have restored most body feedback functions. One should consume whatever amount of salt one's body desires.
 
    As a tip to deal with the low-salt diet situation that is very common in many restaurants, I always carry a small bottle of salt in my pocket in case I feel the food isn't salty enough.
 
 3. **Teeths and gums can repair themselves rapidly.**
+
    If one has reached moderate-level implant detox, one's teeth and gums can repair themselves rapidly when the damage is relatively small. One will never have to worry about miniature cavities or minor tooth decay. Unless there is a hole that is large enough to be visible to the naked eye, they usually heal themselves. This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; individuals can only recognize the issue when it becomes more serious than the body can heal on its own.
 
    To heal the tooth and gum manually, one needs special knowledge. I gained mine through an epiphany while surfing the Internet. The knowledge is out there, mixed with confusing information. One needs to leverage the hidden protector's help to identify the suitable knowledge. The treatment that manually heals tooth and gum usually doesn't require special equipment or substances. Knowledge alone is sufficient.
 
 4. **A more serious condition could block the detection of a minor condition.**
+
    The hidden protector tends to prioritize its efforts toward more serious problems. If there is a persistent condition that always bothers one, one should address that problem promptly; otherwise, it could hide the existence of many other issues due to prioritization.
    
    Some issues, such as nasal congestion, while considered mild by mainstream narrative, can actually be a great hindrance to the hidden protector's efforts. People are conditioned to ignore many bodily issues when the mainstream narrative doesn't really provide a solution. One should use one's subjective discernment to determine which issue is more serious rather than rely on other people's opinions.
@@ -605,7 +609,7 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
 
    Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certainly have blocking effects on a successful detox.
 
-### Implant Expulsion
+### Dead Implant Expulsion
 
 After using Moonlit Elixir consistently for a period, I can feel the implant network inside my body has suffered a significant malfunction because my thoughts have become increasingly clear, and communication with the hidden protector is much easier than before. Note that if I cooperate with my hidden protector closely, the internal implant network should shut down in a gradual and graceful manner. 
 
@@ -646,8 +650,15 @@ In my experience, I never have to worry about others being consciously aware tha
 
 ### Implant Removal Iteration
 
-In the Overview of Chapter 3, I mentioned that steps like "address critical issues", "dismantle implant network foundation in the body", "actual detox" happens iteratively. Let's talk more about that.
+In the Overview of Chapter 3, I mentioned that steps like "address critical issues", "dismantle implant network foundation in the body", "actual detox (dead implant explusion)" happens iteratively. Let's talk more about that.
 
+When the dead implant expulsion started for an extended time, another cycle of implant network dismantling could occur. Often, the terminal or outer layer, which has fewer connections to the control center of your body, will be dismantled first. As the dismantling work goes further, it will reach areas that are more "core" to the body.
+
+For example, there could be an implant network that is directly attached to the nerves all over the body or inside the bones. I say this because I have the experience that these areas are where the network dismantling occurs. That's right; I can feel what's happening inside the bone and even identify which bone it's in. That's one characteristic that will manifest when you and the hidden protector have more fluent communication. You gain more accurate information and control over the body.
+
+I can feel the kidney filtering, the liver detoxing, or some part of the nerves acting out (detox). There is definitely logic and sequence behind these feelings if I pay enough attention. For example, sometimes after part A completes dead implant expulsion, part B (often in bones or nerves) will start reacting. This does not mean whatever treatment done to A causes part B to react. It simply means part A is an outer layer, and when the outer layer is done, part B, a more complicated structure inside the network, is ready to be dismantled. It's like fighting a battle; if you want to reach the adversary's commanding general, you need to defeat their foot soldiers first. That's how you do implant removal, by detoxing layers of implant defense, like peeling an onion.
+
+Sometimes the implant network is inside my body so deep, that dismantling them requires major efforts. In these cases, I could exhibit flu-like symptoms, with fever and fatigue all over the bodys for several days. These are often caused by dismantling implant network in major nerve plexus or inside axial skeleton (skull, vertebral column, or rib). Often, this happens right after a cycle of dead implant expulsion. However, as mentioned before, it does not mean whatever treatments used for dead implant expulsion cause the fever. It simply indicates that the foot soldiers are mostly defeated, and now we're moving up the command chain of the enemy.
 
 ## Chapter 6: Common Questions or Challenges
 Below I will address some common questions or challenges that an average person may have about what I mentioned above. By answering these questions, I hope one can gain a better understanding of my narrative.
