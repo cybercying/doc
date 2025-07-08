@@ -583,7 +583,7 @@ In this stage, which we will be referring to as the _moderate-level_ of implant 
 
 ### Epiphanies of Genuine Health
 
-Before we delve into specifics of detox, I’d like to share some insights on genuine health that emerged from my epiphanies during this moderate-level implant detox. Many ideas may contradict with mainstream narratives.
+Before we delve into specifics of detox, I’d like to share some insights on genuine health that emerged from my epiphanies during this moderate-level implant detox. Many ideas may contradict mainstream narratives.
 
 1. **Toothpaste mainly functions as a lightweight narcotic for tooth health.**   
 
@@ -599,11 +599,11 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
 
    As a tip to deal with the low-salt diet situation that is very common in many restaurants, I always carry a small bottle of salt in my pocket in case I feel the food isn't salty enough.
 
-3. **Teeths and gums can repair themselves rapidly.**
+3. **Teeth and gums can repair themselves rapidly.**
 
    If one has reached moderate-level implant detox, one's teeth and gums can repair themselves rapidly when the damage is relatively small. One will never have to worry about miniature cavities or minor tooth decay. Unless there is a hole that is large enough to be visible to the naked eye, they usually heal themselves. 
    
-   This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; oridnary individuals who never undergo any implant detox can only detect these oral issues when it becomes more serious than the body can heal on its own.
+   This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; ordinary individuals who never undergo any implant detox can only detect these oral issues when it becomes more serious than the body can heal on its own.
 
    To heal the tooth and gum manually, one needs special knowledge. I gained mine through an epiphany while surfing the Internet. The knowledge is out there, mixed with confusing information. One needs to leverage the hidden protector's help to identify the suitable knowledge. The treatment that manually heals tooth and gum usually doesn't require special equipment or substances. Knowledge alone is sufficient.
 
@@ -666,7 +666,7 @@ For example, there could be an implant network that is directly attached to the 
 
 I can feel the kidney filtering, the liver detoxing, or some part of the nerves acting out (detox). There is definitely logic and sequence behind these feelings if I pay enough attention. For example, sometimes after part A completes dead implant expulsion, part B (often in bones or nerves) will start reacting. This does not mean whatever treatment done to A causes part B to react. It simply means part A is an outer layer, and when the outer layer is done, part B, a more complicated structure inside the network, is ready to be dismantled. It's like fighting a battle; if you want to reach the adversary's commanding general, you need to defeat their foot soldiers first. That's how you do implant removal, by detoxing layers of implant defense, like peeling an onion.
 
-Sometimes the implant network is inside my body so deep, that dismantling them requires major efforts. In these cases, I could exhibit flu-like symptoms, with fever and fatigue all over the bodys for several days. These are often caused by dismantling implant network in major nerve plexus or inside axial skeleton (skull, vertebral column, or rib). Often, this happens right after a cycle of dead implant expulsion. However, as mentioned before, it does not mean whatever treatments used for dead implant expulsion cause the fever. It simply indicates that the foot soldiers are mostly defeated, and now we're moving up the command chain of the enemy.
+Sometimes the implant network is inside my body so deep, that dismantling them requires major efforts. In these cases, I could exhibit flu-like symptoms, with fever and fatigue all over the body for several days. These are often caused by dismantling implant network in major nerve plexus or inside axial skeleton (skull, vertebral column, or rib). Often, this happens right after a cycle of dead implant expulsion. However, as mentioned before, it does not mean whatever treatments used for dead implant expulsion cause the fever. It simply indicates that the foot soldiers are mostly defeated, and now we're moving up the command chain of the enemy.
 
 ## Chapter 6: Common Questions or Challenges
 Below I will address some common questions or challenges that an average person may have about what I mentioned above. By answering these questions, I hope one can gain a better understanding of my narrative.
