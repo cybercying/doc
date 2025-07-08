@@ -577,7 +577,9 @@ As one can imagine, the same situation is actually happening in every conspiracy
 **Warning:** Nothing in this document should be construed as medical, health, or therapeutic advice. If you forget what the [disclaimer](#disclaimer-for-reading-this-material) of this document is, perhaps it's time to review it. It's at the top of this document.
 {: .notice--warning}
 
-In this chapter, we will glimpse into what we can expect when we pass the initial detox stage, where significant lightweight narcotics are present and the implant network is mostly intact. In this stage, which we will be referring to as the moderate-level of implant detox, most lightweight narcotics are cleared, and one should have learned to communicate with the hidden protector more effectively. The implant network is beginning to fail, and fragments of failed microscopic implants, or **dead implants**, are starting to be expelled from the body.
+In this chapter, we will glimpse into what we can expect when we pass the initial detox stage, where significant lightweight narcotics are present and the implant network is mostly intact. 
+
+In this stage, which we will be referring to as the _moderate-level_ of implant detox, most lightweight narcotics are cleared, and one should have learned to communicate with the hidden protector more effectively. The implant network is beginning to fail, and fragments of failed microscopic implants, or **dead implants**, are starting to be expelled from the body.
 
 ### Epiphanies of Genuine Health
 
@@ -585,17 +587,23 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
 
 1. **Toothpaste mainly functions as a lightweight narcotic for tooth health.**   
 
-   I discovered that the true function of toothpaste is to numb the sensation of any tooth decay or gum issues from being detected by the nervous system. That's why tooth decay is more common in humans than in animals. Animals simply don't use toothpaste or brush their teeth. In the absence of a replacement, simply stop using any toothpaste (combined with moderate oral cleansing with just water) to improve oral health.
+   I discovered that the true function of toothpaste is to numb the sensation of any tooth decay or gum issues from being detected by the nervous system. 
+   
+   That's why tooth decay is more common in humans than in animals. Animals simply don't use toothpaste or brush their teeth. In the absence of a replacement, simply stopping the use of any toothpaste (combined with moderate oral cleansing using just water) will improve oral health.
 
 2. **Insufficient salt intake causes numerous health problems.**  
 
-   Salt is an essential element for normal bodily functions. Due to the discipline imposed by mainstream narratives, modern individuals often have insufficient salt intake, with many at serious levels. Contrary to mainstream narratives, excessive salt intake is easily expelled by the body, while insufficient salt intake could cause the kidneys to work overload to recycle salt. If one has reached moderate-level implant detox, one should have restored most body feedback functions. One should consume whatever amount of salt one's body desires.
+   Salt is an essential element for normal bodily functions. Due to the discipline imposed by mainstream narratives, modern individuals often have insufficient salt intake, with many at serious levels. Contrary to mainstream narratives, excessive salt intake is easily expelled by the body, while insufficient salt intake could cause the kidneys to work overload to recycle salt. 
+   
+   If one has reached moderate-level implant detox, one should have restored most body feedback functions. One should consume whatever amount of salt one's body desires.
 
    As a tip to deal with the low-salt diet situation that is very common in many restaurants, I always carry a small bottle of salt in my pocket in case I feel the food isn't salty enough.
 
 3. **Teeths and gums can repair themselves rapidly.**
 
-   If one has reached moderate-level implant detox, one's teeth and gums can repair themselves rapidly when the damage is relatively small. One will never have to worry about miniature cavities or minor tooth decay. Unless there is a hole that is large enough to be visible to the naked eye, they usually heal themselves. This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; individuals can only recognize the issue when it becomes more serious than the body can heal on its own.
+   If one has reached moderate-level implant detox, one's teeth and gums can repair themselves rapidly when the damage is relatively small. One will never have to worry about miniature cavities or minor tooth decay. Unless there is a hole that is large enough to be visible to the naked eye, they usually heal themselves. 
+   
+   This, however, is not done automatically. One needs to communicate with the hidden protector. When teeth and gums need help, the hidden protector will tell you. That's right! One can actually _feel problems in the teeth_. Dentists are needed only because people can't feel their dental problems; oridnary individuals who never undergo any implant detox can only detect these oral issues when it becomes more serious than the body can heal on its own.
 
    To heal the tooth and gum manually, one needs special knowledge. I gained mine through an epiphany while surfing the Internet. The knowledge is out there, mixed with confusing information. One needs to leverage the hidden protector's help to identify the suitable knowledge. The treatment that manually heals tooth and gum usually doesn't require special equipment or substances. Knowledge alone is sufficient.
 
@@ -611,7 +619,9 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
 
 ### Dead Implant Expulsion
 
-After using Moonlit Elixir consistently for a period, I can feel the implant network inside my body has suffered a significant malfunction because my thoughts have become increasingly clear, and communication with the hidden protector is much easier than before. Note that if I cooperate with my hidden protector closely, the internal implant network should shut down in a gradual and graceful manner. 
+After using Moonlit Elixir consistently for a period, I can feel the implant network inside my body has suffered a significant degradation because my thoughts have become increasingly clear, and communication with the hidden protector is much easier than before. 
+
+Note that if I cooperate with my hidden protector closely, the internal implant network should shut down in a gradual and graceful manner. 
 
 #### Avoid Drastic Measures
 The case study of Morgellons Disease described in the previous chapter gives us a chance to glimpse how improper implant network shutdown could manifest as a more serious and inexplicable illness. As a primary directive of the implant network is to avoid detection, malfunctioning of the network could cause the implant to behave erratically or over-aggressively. We don't want that. 
@@ -619,8 +629,6 @@ The case study of Morgellons Disease described in the previous chapter gives us 
 Imagine I have a guest who has stayed in my home for an extended period. If I want them to go away, it's best that I don't use abusive language or violent actions. Rather, I should tell them that it is my wish for them to leave, and they should prepare themselves to depart at their earliest convenience. I will keep reminding them every day so they know it's important that they leave me alone. Instead of a forceful eviction, I will express my intention repeatedly and clearly so that they know they are no longer welcome.
 
 If the guest has stayed for a long time, they will become aware of many of my habits. If they become upset, they could easily disrupt my life. We don't want that. Perhaps they had a reason to stay before, but that reason is gone now, and we need to tell them directly so they know it’s time to go.
-
-If the guest has stayed for a long time, they would become aware of many of my habits. If they become upset, they could easily disrupt my life. We don't want that. Perhaps they had a reason to stay before, but that reason is gone now, and we need to tell them directly so they know it’s time to leave.
 
 The point here is not to take drastic measures to remove anything from my body, even in the case of an actual parasite. If a parasite has resided in my body for an extended period, it’s possible the parasite has reached a certain kind of symbiosis with my body. The same thing also applies to implants, especially with such sophisticated networked technology that interferes with the mind.
 
@@ -642,9 +650,9 @@ Often when an old scar that, for some reason, did not heal completely since my y
 
 Actual implant expulsion can involve continuous discharge from multiple spots on the body. When this occurs, the number of concurrent spots that are discharging is carefully controlled below a threshold. This is because the hidden protector does not want to overstress my body. There will be curious phenomena where these spots seem to be "taking turns" to be served by a fixed number of hidden agents who perform the detox work. 
 
-When an agent is done with a spot, they will move to the next spot that is ready for detox. They will usually select spots that don't interfere with your daily life. For example, they will avoid spots on your face or the front-facing parts of your body, arms, or legs. Instead, they will likely choose spots that are on the back of the neck, back of the arm, under the armpit, under the feet, or the posterior area. 
+When an agent is done with a spot, they will move to the next spot that is ready for detox. They will usually select spots that don't interfere with my daily life. For example, they will avoid spots on my face or the front-facing parts of my body, arms, or legs. Instead, they will likely choose spots that are on the back of the neck, back of the arm, under the armpit, under the feet, or the posterior area. 
 
-When I was first able to induce this "appearance-oriented" spot-choosing strategy, I was astonished. Not only does the hidden protector care about my well-being, it also cares about my outward appearance; it doesn't want me to look sick if I am not really sick. That also showed me that detox for implant removal, if done correctly, is about restoring the body to its natural state, free from mind control, rather than recovering from an illness. They behave completely differently.
+When I was first able to induce this "appearance-oriented" spot-choosing strategy, I was astonished. Not only does the hidden protector care about my well-being, it also cares about my outward appearance; it doesn't want me to look sick if I am not really sick. That also showed me that detox for implant removal, if done correctly, is about restoring the body to its natural state, free from mind control, rather than recovering from an illness. They behave completely differently in many subtle details.
 
 In my experience, I never have to worry about others being consciously aware that I am in some kind of detox process just by looking at me. However, the graciously chosen detox spots also bring another kind of challenge. Some spots are really hard to reach, for example, in the posterior area or under my feet. I had to devise techniques that employ several ad hoc instruments or special postures. The expulsion process can sometimes take hours, so it's important that these special postures do not further cause "sports injuries" if performed for prolonged periods.
 
@@ -652,7 +660,7 @@ In my experience, I never have to worry about others being consciously aware tha
 
 In the Overview of Chapter 3, I mentioned that steps like "address critical issues", "dismantle implant network foundation in the body", "actual detox (dead implant explusion)" happens iteratively. Let's talk more about that.
 
-When the dead implant expulsion started for an extended time, another cycle of implant network dismantling could occur. Often, the terminal or outer layer, which has fewer connections to the control center of your body, will be dismantled first. As the dismantling work goes further, it will reach areas that are more "core" to the body.
+When the dead implant expulsion started for an extended time, another cycle of implant network dismantling could occur. Often, the terminal or outer layer, which has fewer connections to the control center of my body, will be dismantled first. As the dismantling work goes further, it will reach areas that are more "core" to the body.
 
 For example, there could be an implant network that is directly attached to the nerves all over the body or inside the bones. I say this because I have the experience that these areas are where the network dismantling occurs. That's right; I can feel what's happening inside the bone and even identify which bone it's in. That's one characteristic that will manifest when you and the hidden protector have more fluent communication. You gain more accurate information and control over the body.
 
