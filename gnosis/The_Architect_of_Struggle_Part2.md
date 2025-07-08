@@ -574,8 +574,10 @@ There were once elements in the movement that promoted the truth, but the truth 
 As one can imagine, the same situation is actually happening in every conspiracy theory circle. That's why they are called "conspiracy theories" because of their prominent internal inconsistencies. But if fake people are indeed everywhere, it's conceivable that these inconsistencies are planted by fake people deliberately to discredit those theories as a whole, regardless of how much truth is in them.
 
 ## Chapter 5: Moderate-Level Implant Detoxification
+**Warning:** Nothing in this document should be construed as medical, health, or therapeutic advice. If you forget what the [disclaimer](#disclaimer-for-reading-this-material) of this document is, perhaps it's time to review it. It's at the top of this document.
+{: .notice--warning}
 
-In this chapter, we will glimpse into what we can expect when we pass the initial detox stage, where significant lightweight narcotics are present and the implant network is mostly intact. In this stage, which we will be referring to as the moderate-level of implant detox, most lightweight narcotics are cleared, and one should have learned to communicate with the hidden protector more effectively. The implant network is beginning to fail, and fragments of microscopic implants are starting to be expelled from the body.
+In this chapter, we will glimpse into what we can expect when we pass the initial detox stage, where significant lightweight narcotics are present and the implant network is mostly intact. In this stage, which we will be referring to as the moderate-level of implant detox, most lightweight narcotics are cleared, and one should have learned to communicate with the hidden protector more effectively. The implant network is beginning to fail, and fragments of failed microscopic implants, or **dead implants**, are starting to be expelled from the body.
 
 ### Epiphanies of Genuine Health
 
@@ -594,17 +596,57 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
 
    To heal the tooth and gum manually, one needs special knowledge. I gained mine through an epiphany while surfing the Internet. The knowledge is out there, mixed with confusing information. One needs to leverage the hidden protector's help to identify the suitable knowledge. The treatment that manually heals tooth and gum usually doesn't require special equipment or substances. Knowledge alone is sufficient.
 
-4. **A more serious condition could block the detection of minor condition.**
+4. **A more serious condition could block the detection of a minor condition.**
    The hidden protector tends to prioritize its efforts toward more serious problems. If there is a persistent condition that always bothers one, one should address that problem promptly; otherwise, it could hide the existence of many other issues due to prioritization.
    
-   Some issues, such as nasal congestion, while considered mild by mainstream narrative, can actually be a great hindrance to the hidden protector's efforts. People are conditioned to ignore many bodily issues when the mainstream narrative doesn't really provide a solution. But one should use one's subjective discernment to determine which issue is more serious rather than rely on mainstream narratives. 
+   Some issues, such as nasal congestion, while considered mild by mainstream narrative, can actually be a great hindrance to the hidden protector's efforts. People are conditioned to ignore many bodily issues when the mainstream narrative doesn't really provide a solution. One should use one's subjective discernment to determine which issue is more serious rather than rely on other people's opinions.
    
    For example, nasal congestion affects breathing, which impacts the brain's oxygen intake. This is obviously a very serious condition, but is often underestimated by people. Others, such as chronic breathing difficulty, chronic neck pain during head movement, or chronic joint pain during limb movement, can also be very serious conditions one should not take lightly.
 
    Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certainly have blocking effects on a successful detox.
 
+### Implant Expulsion
 
+After using Moonlit Elixir consistently for a period, I can feel the implant network inside my body has suffered a significant malfunction because my thoughts have become increasingly clear, and communication with the hidden protector is much easier than before. Note that if I cooperate with my hidden protector closely, the internal implant network should shut down in a gradual and graceful manner. 
 
+#### Avoid Drastic Measures
+The case study of Morgellons Disease described in the previous chapter gives us a chance to glimpse how improper implant network shutdown could manifest as a more serious and inexplicable illness. As a primary directive of the implant network is to avoid detection, malfunctioning of the network could cause the implant to behave erratically or over-aggressively. We don't want that. 
+
+Imagine I have a guest who has stayed in my home for an extended period. If I want them to go away, it's best that I don't use abusive language or violent actions. Rather, I should tell them that it is my wish for them to leave, and they should prepare themselves to depart at their earliest convenience. I will keep reminding them every day so they know it's important that they leave me alone. Instead of a forceful eviction, I will express my intention repeatedly and clearly so that they know they are no longer welcome.
+
+If the guest has stayed for a long time, they will become aware of many of my habits. If they become upset, they could easily disrupt my life. We don't want that. Perhaps they had a reason to stay before, but that reason is gone now, and we need to tell them directly so they know it’s time to go.
+
+If the guest has stayed for a long time, they would become aware of many of my habits. If they become upset, they could easily disrupt my life. We don't want that. Perhaps they had a reason to stay before, but that reason is gone now, and we need to tell them directly so they know it’s time to leave.
+
+The point here is not to take drastic measures to remove anything from my body, even in the case of an actual parasite. If a parasite has resided in my body for an extended period, it’s possible the parasite has reached a certain kind of symbiosis with my body. The same thing also applies to implants, especially with such sophisticated networked technology that interferes with the mind.
+
+#### Adoption of Substance Codenamed "Silva Cleanse"
+
+In a later epiphany, I adopted a substance codenamed **"Silva Cleanse"** as a primary helper to expel dead implants from my body. This particular substance is relatively cheap and common in household items. I gained my epiphany from watching the forbidden documentary described in Chapter 2; however, the treatment I developed was not learned from anywhere outside.
+
+As a convention, using such substance for detox requires specific dose and concentration, which will be intentionally omitted due to safety concerns, as per my [disclaimer](#disclaimer-for-reading-this-material).
+
+Silva Cleanse is an edible substance, but I use it to spray on my body. When I first did that, I immediately noticed a specific odor. I later realized that odor comes from the contact of Silva Cleanse and my sweat, which contains expelled implants. 
+
+After doing that for several months, combined with certain enhanced ad hoc bathing techniques, implant expulsion has significantly increased. A main phenomenon of such expulsion comes from some old scars of acne-like conditions or small mole-like spots. 
+
+These small spots (often less than 2 mm in diameter) will spontaneously bulge; some will cause mild pain or itching. The bulge breaks if you apply proper ad hoc treatment, and various discharges will come from the miniature wound. Some discharge is like pus, some is transparent fluid, and some is darkened blood. Sometimes, these discharges come with some kind of "particles." Some are black; some are white. These are not substances found in common bodily discharges; that's how I know they are residues of _dead implants_.
+
+Often when an old scar that, for some reason, did not heal completely since my youth, finally heals after the discharge is over, which can span several weeks. That's how I know that the body has always been detoxing since my youth; I just didn't know the whole story back then.
+
+#### Gracious Explusion Process
+
+Actual implant expulsion can involve continuous discharge from multiple spots on the body. When this occurs, the number of concurrent spots that are discharging is carefully controlled below a threshold. This is because the hidden protector does not want to overstress my body. There will be curious phenomena where these spots seem to be "taking turns" to be served by a fixed number of hidden agents who perform the detox work. 
+
+When an agent is done with a spot, they will move to the next spot that is ready for detox. They will usually select spots that don't interfere with your daily life. For example, they will avoid spots on your face or the front-facing parts of your body, arms, or legs. Instead, they will likely choose spots that are on the back of the neck, back of the arm, under the armpit, under the feet, or the posterior area. 
+
+When I was first able to induce this "appearance-oriented" spot-choosing strategy, I was astonished. Not only does the hidden protector care about my well-being, it also cares about my outward appearance; it doesn't want me to look sick if I am not really sick. That also showed me that detox for implant removal, if done correctly, is about restoring the body to its natural state, free from mind control, rather than recovering from an illness. They behave completely differently.
+
+In my experience, I never have to worry about others being consciously aware that I am in some kind of detox process just by looking at me. However, the graciously chosen detox spots also bring another kind of challenge. Some spots are really hard to reach, for example, in the posterior area or under my feet. I had to devise techniques that employ several ad hoc instruments or special postures. The expulsion process can sometimes take hours, so it's important that these special postures do not further cause "sports injuries" if performed for prolonged periods.
+
+### Implant Removal Iteration
+
+In the Overview of Chapter 3, I mentioned that steps like "address critical issues", "dismantle implant network foundation in the body", "actual detox" happens iteratively. Let's talk more about that.
 
 
 ## Chapter 6: Common Questions or Challenges
