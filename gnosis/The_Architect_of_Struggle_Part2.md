@@ -615,7 +615,25 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
    
    For example, nasal congestion affects breathing, which impacts the brain's oxygen intake. This is obviously a very serious condition, but is often underestimated by people. Others, such as chronic breathing difficulty, chronic neck pain during head movement, or chronic joint pain during limb movement, can also be very serious conditions one should not take lightly.
 
-   Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certainly have blocking effects on a successful detox.
+   Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certain
+   
+5. **Your body is much more resilient than you imagine.**
+
+   Because of the existence of pervasive implants inside my body, the immune system is constantly being suppressed before my implant removal attempts. 
+   
+   There are many places throughout the body that constantly expose internal lining or blood vessels to the outside, where we’re told is infested with microorganisms such as viruses and bacteria. These places include the gums, anus, conjunctiva, nasal cavity, bronchi, etc. 
+   
+   We’re also told that the internals of our body are sterile, which I soon realize is simply untrue after I reach a moderate level of implant detox. What I came to understand later is that our body is crawling with these microorganisms at any moment. They are just below a certain concentration, so they don’t interfere with normal bodily functions.
+
+   Imagine an urban city packed with citizens living peacefully. Does that mean there aren't any criminals? Certainly not. Criminals are always present, but they do not commit crimes constantly. They remain dormant most of the time and only get noticed by people or police when they are committing crimes.
+
+   The same thing also applies inside our bodies. Microorganisms inside our body are harmless most of the time, and the immune system does not occupy most of the population. They only patrol sporadically when there isn't elevated stress. The immune response activates only when microorganisms congregate to form microbiomes that begin to interfere with normal cells. That explains myodesopsias, where the supposedly heavily guarded area inside the eyeballs is often populated with unknown substances.
+
+   That's also how implants generally avoid detection by the immune system. They stay clever by not doing something obvious, like inert dust. Most implants only function as computing units that communicate wirelessly. Some of them influence subtle bodily functions by emitting minute hormones that only affect body indirectly.
+
+   As part of my dead implant expulsion procedures, as I will describe later, I often need to operate directly on an open wound, as instructed by the hidden protector, often with non-sterile instruments. I mean, I used sterile instruments initially (by applying Moonlit Elixir as disinfectant) but later found them unnecessary. 
+   
+   The wound on which I operated almost always shows no signs of infection or inflammation later and heals at an incredible speed. The same procedure would certainly cause serious infection or inflammation before implant removal. This suggests the implant has a strong immunosuppressant function, and when removed, the immune system grows much stronger than I could ever imagine.
 
 ### Dead Implant Expulsion
 
