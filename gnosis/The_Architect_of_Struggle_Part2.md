@@ -615,7 +615,7 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
    
    For example, nasal congestion affects breathing, which impacts the brain's oxygen intake. This is obviously a very serious condition, but is often underestimated by people. Others, such as chronic breathing difficulty, chronic neck pain during head movement, or chronic joint pain during limb movement, can also be very serious conditions one should not take lightly.
 
-   Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certain
+   Generally speaking, conditions that greatly affect the quality of life should be considered very serious. Although this assessment does not necessarily align with the mainstream narrative, these conditions certainly have blocking effects on a successful detox.
    
 5. **Your body is much more resilient than you imagine.**
 
@@ -623,7 +623,7 @@ Before we delve into specifics of detox, I’d like to share some insights on ge
    
    There are many places throughout the body that constantly expose internal lining or blood vessels to the outside, where we’re told is infested with microorganisms such as viruses and bacteria. These places include the gums, anus, conjunctiva, nasal cavity, bronchi, etc. 
    
-   We’re also told that the internals of our body are sterile, which I soon realize is simply untrue after I reach a moderate level of implant detox. What I came to understand later is that our body is crawling with these microorganisms at any moment. They are just below a certain concentration, so they don’t interfere with normal bodily functions.
+   We’re also told that the internals of our body are sterile, which I soon realize is simply untrue after I reach a moderate-level of implant detox. What I came to understand later is that our body is crawling with these microorganisms at any moment. They are just below a certain concentration, so they don’t interfere with normal bodily functions.
 
    Imagine an urban city packed with citizens living peacefully. Does that mean there aren't any criminals? Certainly not. Criminals are always present, but they do not commit crimes constantly. They remain dormant most of the time and only get noticed by people or police when they are committing crimes.
 
