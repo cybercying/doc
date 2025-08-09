@@ -1,0 +1,1 @@
+$(document).ready(()=>$("span.sr-only").text(""));
