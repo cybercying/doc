@@ -185,6 +185,22 @@ There is a section in part one of the essay series that explains why housing is 
 
 So, if you understand that affordable housing is not possible in the real world but still believe "happily ever after" is somehow possible, then you’re in the "game" too deep. You are not ready for the truth.
 
+#### Do We Fix This Broken Material Realm?
+
+After gaining some understanding of the true extent of how broken this hijacked material realm is, one might be tempted to try to "fix" this world. However, this may not be the best course of action. In the section ["Story of a Voluntary Career"](#story-of-a-voluntary-career) and the section ["Case Study of Morgellons Disease"](#case-study-of-morgellons-disease) in Chapter 4, I will explain more details about what could happen if one tries to fix the world. For now, I'll provide a simpler perspective as follows.
+
+I will use a video game as an analogy for this material realm.
+ There is a video game called "Grand Theft Auto V, " which, although very popular, is often criticized for its violence and crime-centric theme. 
+
+Imagine that you're a player of this game and somehow got "trapped" inside the game and cannot escape. You become convinced that you *are* the player character and forget your real identity. Dying in the game only causes reincarnation (respawn), forcing you to experience all the violence in the game again and again, including torturing and killing NPCs, committing various crimes, or causing amoral mayhem. Although after reincarnation your memory is wiped, the wipe is not complete. There is always some memory left from previous reincarnations of various violence and psychological trauma. 
+
+After hundreds of reincarnations, you're finally tired. The remnants from the incomplete memory wipe lead you to piece together the whole picture of the game. You became aware of the details of all stories and all alternative endings. There is no more story you want to experience; you have learned it all. At this very moment, you also reached enlightenment about how to "correctly" exit the game, and so you did.
+
+After you exited the game, you regained all your memory, including who you really are. You suddenly realize that it is just a game.
+ The violence and trauma in the game are really just how the game is supposed to be. This particular game is deliberately designed this way, and those are its top-selling features. There are many other games with different features to explore.
+
+With all this in mind, would you want to "fix" the game? I mean, the perspective has changed. You're no longer trapped in a single game. Also, "fixing" the game could disrupt the entire storyline, potentially causing it to collapse completely. Perhaps a better choice is to create another game from scratch or simply play a different game.
+
 ### More On Fake People
 
 If you are not among those "who are not ready to see," it doesn't automatically mean that you see the truth. It just means you feel something is off, prompting you to start finding clues and demonstrating that you have the _potential_ to see the truth. This is somewhat related to fake people, so let's talk more about that. 
